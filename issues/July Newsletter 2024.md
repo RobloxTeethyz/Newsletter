@@ -1,8 +1,9 @@
 ![Banner](https://github.com/user-attachments/assets/66b3454f-c826-49f9-a367-d138d50de198)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-PLACE HOLDER INTRO :D
+Ello everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover mostly everything that occured during July! We hope you enjoy!
 
+- Newsletter Team
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
