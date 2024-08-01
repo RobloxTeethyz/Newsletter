@@ -769,10 +769,16 @@ What did you do for your birthday? Or What do you have planned for your birthday
 
 Lead Newsletter Board: RBLXWithEmily & XxCandy2372xX 
 
-Newsletter Board: PerfectlyAnnie, vaemma, aimlvma, mckcnzies, & witty20007
+Newsletter Board: PerfectlyAnnie, vaemmlaqx, aimlvma, mckcnzies, & witty20007
 
 Site Provider/Advisor: Jyrezo
 
-Graphics: michallol7, avuhcxdo, adqysvn, foundlilly, & azashinan
+Graphics: michallol7, avuhcxdo, adqysvn & foundlilly 
 
-Section Authors: Furnface, vcorria, steveygamer2, fwoIklore, iichxr_1, fevside, Ioviinqbr, mariesluvqs, svphiees, angelicpayton, lqvelxa, & ashlvqh
+Section Authors: Furnface, vcorria, steveygamer2, fwoIklore, Ioviinqbr, mariesluvqs, svphiees, & ashlvqh
+
+Photographers: UhMeliaa, Didi_ek, NewSwitcherop & Vinnielittle14
+
+Social Assistants: Tradewinds2810, Choiisiiwon, & eviegracea
+
+Editors: TailaBzp, Lukefromthedead, aolqnii, flowersandrainbowzz, kkennedys, ordinarythngs, 1uvxflqra, & OceanAvny
