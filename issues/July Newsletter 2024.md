@@ -759,3 +759,20 @@ What did you do for your birthday? Or What do you have planned for your birthday
 -----
 
 **Section made by eviegracea & tradewinds2810 + Graphics Team**
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our June Newsletter! See you next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: RBLXWithEmily & XxCandy2372xX 
+
+Newsletter Board: PerfectlyAnnie, vaemma, aimlvma, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, avuhcxdo, adqysvn, foundlilly, & azashinan
+
+Section Authors: Furnface, vcorria, steveygamer2, fwoIklore, iichxr_1, fevside, Ioviinqbr, mariesluvqs, svphiees, angelicpayton, lqvelxa, & ashlvqh
