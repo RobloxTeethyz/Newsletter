@@ -1,4 +1,5 @@
-![August_newsletter2024](https://discord.com/channels/1094746379227774997/1094801817881280592/1279573711011319839)
+![August_newsletter2024](<img width="1057" alt="Screen Shot 2024-09-03 at 9 08 47 PM" src="https://github.com/user-attachments/assets/9db1690b-68d1-4cfb-80ee-cb3d602e03ee">)
+
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 Hello, everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover up mostly everything that occured during August! Before you start reading this month's newsletter, we just want to thank Chrissy for helping out with all of newsletter ever since August of 2023. Just a bit of a history lesson, Teethyz newsletter originally started during 2020 but it was sadly discontinued during 2022. Ever since August of 2023, Chrissy made the choice to bring back monthly newsletter for you all to read and enjoy. We can't thank Chrissy enough for all of her hardwork she has done towards Newsletter. Her hardwork will never be forgotten. Now, we hope you enjoy reading this month's newsletter!
