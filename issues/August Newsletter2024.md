@@ -511,25 +511,33 @@ Hello, Teethyz community! During the month of August, we were able to capture ma
 
 We have had some very enjoyable shifts this month! I hope you enjoy the lovely collage of some of this months shift pictures! Can you spot yourself or any of your friends?
 
-![August2024Shiftcollage](https
+
+<img width="660" alt="Screen Shot 2024-09-03 at 9 29 10 PM" src="https://github.com/user-attachments/assets/fc24fe11-428d-4609-998f-958c5235ed0f">
+
 
 ₊ ⊹ **Training photos**
 
 As you know we host daily trainings, we always take a photo at the end with our trainers! Check them out below!
 
-![August2024Trainingcollage](https
+
+<img width="775" alt="Screen Shot 2024-09-03 at 9 29 27 PM" src="https://github.com/user-attachments/assets/08fa0016-3654-4aa6-9c87-db69c4ca2ca7">
+
 
 ₊ ⊹ **Alliance photos**
 
 We definitely love visiting our lovely alliances, or them visiting us! Enjoy this collage we made for you.
 
-![August2024Alliancecollage](https
+
+<img width="309" alt="Screen Shot 2024-09-03 at 9 29 47 PM" src="https://github.com/user-attachments/assets/40f3daab-1c3a-4d74-bf9f-ebfa5b48d0e8">
+
 
 ₊ ⊹ **Funny photos**
 
 During this month, we’ve had many laughs and fun moments. I hope you’ve had a good month and as many laughs as we had. Here we leave you a collage with the best funny photos of this month; we hope you like it! 
 
-![August2024Funnycollage](https
+
+<img width="774" alt="Screen Shot 2024-09-03 at 9 30 39 PM" src="https://github.com/user-attachments/assets/cba4a314-2fa8-445a-9312-a65dc4b93d62">
+
 
 That wraps up this month’s memories section! Our team loved capturing these moments here at Teethyz and we hope you enjoyed them as well. We hope to see you again next time!
 
