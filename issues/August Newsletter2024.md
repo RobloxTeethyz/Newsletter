@@ -406,6 +406,10 @@ https://github.com/user-attachments/assets/21bf249e-110f-48c3-94f3-994b14d60bfa
 
 This month, we have had a lot of meaningful, and memorable birthdays in the Teethyz community. Many of our MR+ celebrated a birthday this month, and me and SiimplyBunnwy got the opportunity to interview some of them! Here are some of the responses:
 
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 43 57 PM" src="https://github.com/user-attachments/assets/b9855ebe-b040-4fae-ac46-5756eb2e0d52">
+
+
 - Interviewee: Jyzero (Birthday: August 2nd)
 - Interviewer: fwoIklore
 
@@ -413,7 +417,11 @@ Question: How did you celebrate your birthday this year?
 
 Response: “I just spent the day with family, didn't really have a party or anything.”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 45 16 PM" src="https://github.com/user-attachments/assets/f0479e9f-5ecf-406f-aa49-c3feaf6b3daf">
+
 
 - Interviewee: michallol7 (Birthday: August 17th)
 - Interviewer: fwoIklore
@@ -422,7 +430,11 @@ Question: How did you celebrate your birthday this year?
 
 Response: “I celebrated my birthday with a fancy hibachi restaurant for lunch, and set up for a slumber party with my friends and we had a blast!”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 48 00 PM" src="https://github.com/user-attachments/assets/f86faf3e-b514-4856-b076-c79fc324f7da">
+
 
 - Interviewee: RobloxPro201222 (Birthday: August 14th)
 - Interviewer: fwoIklore
@@ -431,7 +443,10 @@ Question: How did you celebrate your birthday this year?
 
 Response: “For my birthday, I didn't really do a lot since all my plans are set to friday, but on Friday my friend is going to come over and we'll go to the theme parkk! I just had a little celebration with some cake! I was mostly online aswell since I didn't have anything to do, just chatting with some friends.”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 49 03 PM" src="https://github.com/user-attachments/assets/6d3fab70-ddd6-4560-b673-cfaba2bafbbe">
+
 
 - Interviewee: elxvriaa (Birthday: August 10th)
 - Interviewer: fwoIklore
@@ -440,7 +455,10 @@ Question: How did you celebrate your birthday this year?
 
 Response: “On my birthday, I had a really memorable day. I started by hosting my very first shift at teethyz, which was a big milestone for me. Later, I enjoyed a delicious seafood meal at a nice restaurant. To top off the day, I went to Urban Air with my family and friends!!”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 46 26 PM" src="https://github.com/user-attachments/assets/682b4aa4-9836-4dd8-82c0-fa5dad3855bc">
+
 
 - Interviewee: Tradewinds2810 (Birthday: August 2nd)
 - Interviewer: SiimplyBunnwy
@@ -449,7 +467,10 @@ Question: How did you celebrate your birthday this year?
 
 Response: “For my birthday I went to one of those waterparks which is on a lake which was very fun and spent time with family and ate cake then I also had chinese and domino’s for dinner.”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 46 11 PM" src="https://github.com/user-attachments/assets/cd9eadde-dd33-4c32-a44d-4eaec5d46029">
+
 
 - Interviewee: eviegracea (Birthday: August 2nd)
 - Interviewer: SiimplyBunnwy
@@ -458,7 +479,11 @@ Question: How did you celebrate your birthday this year?
 
 Response: “For my birthday I did an inflatable water park thing with my friends which was very fun and then came home and had dominos!!”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 53 45 PM" src="https://github.com/user-attachments/assets/0f928191-79c7-4035-a6c2-f041ed674757">
+
 
 - Interviewee: mariesluvqs (Birthday: August 17th)
 - Interviewer: SiimplyBunnwy
@@ -467,7 +492,11 @@ Question: How did you celebrate your birthday this year?
 
 Response: “I was able to spend my birthday mostly by relaxing and spending time with my family. We went out to dinner where I ate a lot of food. I also got many presents and birthday wishes from friends.”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="391" alt="Screen Shot 2024-09-03 at 9 46 38 PM" src="https://github.com/user-attachments/assets/323d81e2-6c32-484d-8062-df22ae5cd7f6">
+
 
 - Interviewee: fIqraley (Birthday: August 19th)
 - Interviewer: SiimplyBunnwy
@@ -476,7 +505,7 @@ Question: How did you celebrate your birthday this year?
 
 Response: “What I did for my birthday was I went to one of my favorite restaurants with my friends and family! I got a bunch of cool things for my birthday and I’m glad I got to celebrate it with people I love 🙂 then of course when I got home I had a bunch more cake!! Xx”
 
-:line: 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 Overall, this month we celebrated the amazing birthdays of some of Teethyz management members. If you see them in chat or in game, it is never too late to say happy birthday to them! Although we only interviewed a couple of the people that had a birthday this month, there were still countless birthdays this month, which you can find down below!
 
@@ -492,6 +521,12 @@ Overall, this month we celebrated the amazing birthdays of some of Teethyz manag
 - 24/8 lqvingaveryx
 - 28/8 alessqi
 - 31/8 svphiees
+
+
+<img width="427" alt="Screen Shot 2024-09-03 at 9 55 32 PM" src="https://github.com/user-attachments/assets/6a9a91c2-fb75-4699-a829-0d6fd8d32abc">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 54 23 PM" src="https://github.com/user-attachments/assets/11638881-1ded-4013-b0a9-51da52d862e6">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 54 37 PM" src="https://github.com/user-attachments/assets/290aeab9-6ee7-4042-ad3d-99a291a5b880">
+
 
 Thank you for reading this month's birthday section, we hope you have a good day/night!
 
