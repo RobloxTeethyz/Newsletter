@@ -390,7 +390,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-
+https://github.com/user-attachments/assets/21bf249e-110f-48c3-94f3-994b14d60bfa
 
   *Section by Iykasq & eviegracea*
 
