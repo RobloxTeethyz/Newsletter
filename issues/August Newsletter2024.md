@@ -10,7 +10,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="804" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -53,7 +53,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="804" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/9ae1e8d3-f332-41d5-8116-889d98155d01">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/9ae1e8d3-f332-41d5-8116-889d98155d01">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -78,7 +78,7 @@ Snorkelling: just like a swim, but with the additional package of a  breath taki
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="802" alt="Screen Shot 2024-09-03 at 9 19 18 PM" src="https://github.com/user-attachments/assets/24aea283-c741-4be9-bb86-140e5fcaeaea">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 18 PM" src="https://github.com/user-attachments/assets/24aea283-c741-4be9-bb86-140e5fcaeaea">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -136,7 +136,7 @@ Last but not least, I can’t neglect to mention my favorite tiny but mighty era
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="802" alt="Screen Shot 2024-09-03 at 9 19 34 PM" src="https://github.com/user-attachments/assets/253d94e0-42c8-4ef8-a601-8b7a11a3a7f3">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 34 PM" src="https://github.com/user-attachments/assets/253d94e0-42c8-4ef8-a601-8b7a11a3a7f3">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -209,7 +209,7 @@ My favorite memory of the summer is when I went to Blackpool with my mom! We wen
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="801" alt="Screen Shot 2024-09-03 at 9 19 48 PM" src="https://github.com/user-attachments/assets/7c13c684-3ae5-4bd4-a12c-1d9fe34cf818">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 48 PM" src="https://github.com/user-attachments/assets/7c13c684-3ae5-4bd4-a12c-1d9fe34cf818">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -233,7 +233,7 @@ My favorite memory of the summer is when I went to Blackpool with my mom! We wen
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="805" alt="Screen Shot 2024-09-03 at 9 20 03 PM" src="https://github.com/user-attachments/assets/37dd122f-b81b-4a39-b3c6-5e5a94bdc8c8">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 03 PM" src="https://github.com/user-attachments/assets/37dd122f-b81b-4a39-b3c6-5e5a94bdc8c8">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -385,7 +385,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="801" alt="Screen Shot 2024-09-03 at 9 20 24 PM" src="https://github.com/user-attachments/assets/166c42f0-c090-4921-af95-3ef399ca540a">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 24 PM" src="https://github.com/user-attachments/assets/166c42f0-c090-4921-af95-3ef399ca540a">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -500,7 +500,7 @@ Thank you for reading this month's birthday section, we hope you have a good day
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="806" alt="Screen Shot 2024-09-03 at 9 20 57 PM" src="https://github.com/user-attachments/assets/ae692148-a17b-441a-b09e-a69d15fc0747">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 57 PM" src="https://github.com/user-attachments/assets/ae692148-a17b-441a-b09e-a69d15fc0747">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
