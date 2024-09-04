@@ -53,7 +53,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/9ae1e8d3-f332-41d5-8116-889d98155d01">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 56 PM" src="https://github.com/user-attachments/assets/c77db6e6-5140-4d34-befe-6eded327ddc4">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
