@@ -390,7 +390,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![tiktok_3](https:
+
 
   *Section by Iykasq & eviegracea*
 
