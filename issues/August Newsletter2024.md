@@ -1,4 +1,5 @@
-![August_newsletter2024](<img width="1057" alt="Screen Shot 2024-09-03 at 9 08 47 PM" src="https://github.com/user-attachments/assets/9db1690b-68d1-4cfb-80ee-cb3d602e03ee">)
+![August_newsletter2024]<img width="1057" alt="Screen Shot 2024-09-03 at 9 08 47 PM" src="https://github.com/user-attachments/assets/1e1b0a7d-016e-492e-97f0-7c5a41bfc41e">
+
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
