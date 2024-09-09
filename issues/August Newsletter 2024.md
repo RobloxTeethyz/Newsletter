@@ -1,4 +1,4 @@
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 08 47 PM" src="https://github.com/user-attachments/assets/1e1b0a7d-016e-492e-97f0-7c5a41bfc41e">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 08 47 PM" src="https://github.com/user-attachments/assets/1e1b0a7d-016e-492e-97f0-7c5a41bfc41e"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -10,7 +10,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -53,7 +53,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 56 PM" src="https://github.com/user-attachments/assets/c77db6e6-5140-4d34-befe-6eded327ddc4">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 56 PM" src="https://github.com/user-attachments/assets/c77db6e6-5140-4d34-befe-6eded327ddc4"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -78,7 +78,7 @@ Snorkelling: just like a swim, but with the additional package of a  breath taki
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 18 PM" src="https://github.com/user-attachments/assets/24aea283-c741-4be9-bb86-140e5fcaeaea">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 18 PM" src="https://github.com/user-attachments/assets/24aea283-c741-4be9-bb86-140e5fcaeaea"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -136,7 +136,7 @@ Last but not least, I can’t neglect to mention my favorite tiny but mighty era
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 34 PM" src="https://github.com/user-attachments/assets/253d94e0-42c8-4ef8-a601-8b7a11a3a7f3">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 34 PM" src="https://github.com/user-attachments/assets/253d94e0-42c8-4ef8-a601-8b7a11a3a7f3"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -209,7 +209,7 @@ My favorite memory of the summer is when I went to Blackpool with my mom! We wen
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 48 PM" src="https://github.com/user-attachments/assets/7c13c684-3ae5-4bd4-a12c-1d9fe34cf818">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 19 48 PM" src="https://github.com/user-attachments/assets/7c13c684-3ae5-4bd4-a12c-1d9fe34cf818"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -233,7 +233,7 @@ My favorite memory of the summer is when I went to Blackpool with my mom! We wen
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 03 PM" src="https://github.com/user-attachments/assets/37dd122f-b81b-4a39-b3c6-5e5a94bdc8c8">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 03 PM" src="https://github.com/user-attachments/assets/37dd122f-b81b-4a39-b3c6-5e5a94bdc8c8"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -385,7 +385,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 24 PM" src="https://github.com/user-attachments/assets/166c42f0-c090-4921-af95-3ef399ca540a">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 24 PM" src="https://github.com/user-attachments/assets/166c42f0-c090-4921-af95-3ef399ca540a"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -397,7 +397,7 @@ https://github.com/user-attachments/assets/21bf249e-110f-48c3-94f3-994b14d60bfa
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="806" alt="Screen Shot 2024-09-03 at 9 20 43 PM" src="https://github.com/user-attachments/assets/5eb6c712-2c37-4a9c-90bb-c054810b9ae6">
+<img width="806" alt="Screen Shot 2024-09-03 at 9 20 43 PM" src="https://github.com/user-attachments/assets/5eb6c712-2c37-4a9c-90bb-c054810b9ae6"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -407,7 +407,7 @@ https://github.com/user-attachments/assets/21bf249e-110f-48c3-94f3-994b14d60bfa
 This month, we have had a lot of meaningful, and memorable birthdays in the Teethyz community. Many of our MR+ celebrated a birthday this month, and me and SiimplyBunnwy got the opportunity to interview some of them! Here are some of the responses:
 
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 43 57 PM" src="https://github.com/user-attachments/assets/b9855ebe-b040-4fae-ac46-5756eb2e0d52">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 43 57 PM" src="https://github.com/user-attachments/assets/b9855ebe-b040-4fae-ac46-5756eb2e0d52"/>
 
 
 - Interviewee: Jyzero (Birthday: August 2nd)
@@ -420,7 +420,7 @@ Response: “I just spent the day with family, didn't really have a party or any
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 45 16 PM" src="https://github.com/user-attachments/assets/f0479e9f-5ecf-406f-aa49-c3feaf6b3daf">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 45 16 PM" src="https://github.com/user-attachments/assets/f0479e9f-5ecf-406f-aa49-c3feaf6b3daf"/>
 
 
 - Interviewee: michallol7 (Birthday: August 17th)
@@ -433,7 +433,7 @@ Response: “I celebrated my birthday with a fancy hibachi restaurant for lunch,
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 48 00 PM" src="https://github.com/user-attachments/assets/f86faf3e-b514-4856-b076-c79fc324f7da">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 48 00 PM" src="https://github.com/user-attachments/assets/f86faf3e-b514-4856-b076-c79fc324f7da"/>
 
 
 - Interviewee: RobloxPro201222 (Birthday: August 14th)
@@ -445,7 +445,7 @@ Response: “For my birthday, I didn't really do a lot since all my plans are se
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 49 03 PM" src="https://github.com/user-attachments/assets/6d3fab70-ddd6-4560-b673-cfaba2bafbbe">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 49 03 PM" src="https://github.com/user-attachments/assets/6d3fab70-ddd6-4560-b673-cfaba2bafbbe"/>
 
 
 - Interviewee: elxvriaa (Birthday: August 10th)
@@ -457,7 +457,7 @@ Response: “On my birthday, I had a really memorable day. I started by hosting 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 46 26 PM" src="https://github.com/user-attachments/assets/682b4aa4-9836-4dd8-82c0-fa5dad3855bc">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 46 26 PM" src="https://github.com/user-attachments/assets/682b4aa4-9836-4dd8-82c0-fa5dad3855bc"/>
 
 
 - Interviewee: Tradewinds2810 (Birthday: August 2nd)
@@ -469,7 +469,7 @@ Response: “For my birthday I went to one of those waterparks which is on a lak
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 46 11 PM" src="https://github.com/user-attachments/assets/cd9eadde-dd33-4c32-a44d-4eaec5d46029">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 46 11 PM" src="https://github.com/user-attachments/assets/cd9eadde-dd33-4c32-a44d-4eaec5d46029"/>
 
 
 - Interviewee: eviegracea (Birthday: August 2nd)
@@ -482,7 +482,7 @@ Response: “For my birthday I did an inflatable water park thing with my friend
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 53 45 PM" src="https://github.com/user-attachments/assets/0f928191-79c7-4035-a6c2-f041ed674757">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 53 45 PM" src="https://github.com/user-attachments/assets/0f928191-79c7-4035-a6c2-f041ed674757"/>
 
 
 - Interviewee: mariesluvqs (Birthday: August 17th)
@@ -495,7 +495,7 @@ Response: “I was able to spend my birthday mostly by relaxing and spending tim
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="391" alt="Screen Shot 2024-09-03 at 9 46 38 PM" src="https://github.com/user-attachments/assets/323d81e2-6c32-484d-8062-df22ae5cd7f6">
+<img width="391" alt="Screen Shot 2024-09-03 at 9 46 38 PM" src="https://github.com/user-attachments/assets/323d81e2-6c32-484d-8062-df22ae5cd7f6"/>
 
 
 - Interviewee: fIqraley (Birthday: August 19th)
@@ -523,9 +523,9 @@ Overall, this month we celebrated the amazing birthdays of some of Teethyz manag
 - 31/8 svphiees
 
 
-<img width="427" alt="Screen Shot 2024-09-03 at 9 55 32 PM" src="https://github.com/user-attachments/assets/6a9a91c2-fb75-4699-a829-0d6fd8d32abc">
-<img width="427" alt="Screen Shot 2024-09-03 at 9 54 23 PM" src="https://github.com/user-attachments/assets/11638881-1ded-4013-b0a9-51da52d862e6">
-<img width="427" alt="Screen Shot 2024-09-03 at 9 54 37 PM" src="https://github.com/user-attachments/assets/290aeab9-6ee7-4042-ad3d-99a291a5b880">
+<img width="427" alt="Screen Shot 2024-09-03 at 9 55 32 PM" src="https://github.com/user-attachments/assets/6a9a91c2-fb75-4699-a829-0d6fd8d32abc"/>
+<img width="427" alt="Screen Shot 2024-09-03 at 9 54 23 PM" src="https://github.com/user-attachments/assets/11638881-1ded-4013-b0a9-51da52d862e6"/>
+<img width="427" alt="Screen Shot 2024-09-03 at 9 54 37 PM" src="https://github.com/user-attachments/assets/290aeab9-6ee7-4042-ad3d-99a291a5b880"/>
 
 
 Thank you for reading this month's birthday section, we hope you have a good day/night!
@@ -535,7 +535,7 @@ Thank you for reading this month's birthday section, we hope you have a good day
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 57 PM" src="https://github.com/user-attachments/assets/ae692148-a17b-441a-b09e-a69d15fc0747">
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 20 57 PM" src="https://github.com/user-attachments/assets/ae692148-a17b-441a-b09e-a69d15fc0747"/>
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -547,7 +547,7 @@ Hello, Teethyz community! During the month of August, we were able to capture ma
 We have had some very enjoyable shifts this month! I hope you enjoy the lovely collage of some of this months shift pictures! Can you spot yourself or any of your friends?
 
 
-<img width="660" alt="Screen Shot 2024-09-03 at 9 29 10 PM" src="https://github.com/user-attachments/assets/fc24fe11-428d-4609-998f-958c5235ed0f">
+<img width="660" alt="Screen Shot 2024-09-03 at 9 29 10 PM" src="https://github.com/user-attachments/assets/fc24fe11-428d-4609-998f-958c5235ed0f"/>
 
 
 ₊ ⊹ **Training photos**
@@ -555,7 +555,7 @@ We have had some very enjoyable shifts this month! I hope you enjoy the lovely c
 As you know we host daily trainings, we always take a photo at the end with our trainers! Check them out below!
 
 
-<img width="775" alt="Screen Shot 2024-09-03 at 9 29 27 PM" src="https://github.com/user-attachments/assets/08fa0016-3654-4aa6-9c87-db69c4ca2ca7">
+<img width="775" alt="Screen Shot 2024-09-03 at 9 29 27 PM" src="https://github.com/user-attachments/assets/08fa0016-3654-4aa6-9c87-db69c4ca2ca7"/>
 
 
 ₊ ⊹ **Alliance photos**
@@ -563,7 +563,7 @@ As you know we host daily trainings, we always take a photo at the end with our 
 We definitely love visiting our lovely alliances, or them visiting us! Enjoy this collage we made for you.
 
 
-<img width="309" alt="Screen Shot 2024-09-03 at 9 29 47 PM" src="https://github.com/user-attachments/assets/40f3daab-1c3a-4d74-bf9f-ebfa5b48d0e8">
+<img width="309" alt="Screen Shot 2024-09-03 at 9 29 47 PM" src="https://github.com/user-attachments/assets/40f3daab-1c3a-4d74-bf9f-ebfa5b48d0e8"/>
 
 
 ₊ ⊹ **Funny photos**
@@ -571,7 +571,7 @@ We definitely love visiting our lovely alliances, or them visiting us! Enjoy thi
 During this month, we’ve had many laughs and fun moments. I hope you’ve had a good month and as many laughs as we had. Here we leave you a collage with the best funny photos of this month; we hope you like it! 
 
 
-<img width="774" alt="Screen Shot 2024-09-03 at 9 30 39 PM" src="https://github.com/user-attachments/assets/cba4a314-2fa8-445a-9312-a65dc4b93d62">
+<img width="774" alt="Screen Shot 2024-09-03 at 9 30 39 PM" src="https://github.com/user-attachments/assets/cba4a314-2fa8-445a-9312-a65dc4b93d62"/>
 
 
 That wraps up this month’s memories section! Our team loved capturing these moments here at Teethyz and we hope you enjoyed them as well. We hope to see you again next time!
