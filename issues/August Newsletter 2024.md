@@ -410,7 +410,7 @@ This month, we have had a lot of meaningful, and memorable birthdays in the Teet
 <img width="427" alt="Screen Shot 2024-09-03 at 9 43 57 PM" src="https://github.com/user-attachments/assets/b9855ebe-b040-4fae-ac46-5756eb2e0d52"/>
 
 
-- Interviewee: Jyzero (Birthday: August 2nd)
+- Interviewee: Jyrezo (Birthday: August 2nd)
 - Interviewer: fwoIklore
 
 Question: How did you celebrate your birthday this year?
