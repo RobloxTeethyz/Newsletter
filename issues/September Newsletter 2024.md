@@ -444,3 +444,95 @@ Bake for 10-12 minutes, or until lightly golden brown
 Transfer the cookies to a cooling rack and cool for 15 minutes, or until firm
 
 — *Section written by: ethvrweal*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hello! In this section, we have recapitulated every event that has happened in the month of September. Including a short description, the prizes, and the winners! Let's get started!
+
+**Short Movie Competition!**
+
+Our lovely Public Relations member, Emma (15thsecond), hosted a movie competition at the end of August/beginning of September. The video had to have a duration from 30 seconds to 5 minutes, and the winners received both the Event Winner role, and a prize from 100 to 300 Robux depending on their leaderboard classification! The winners of the competition are the following, as well as with the Youtube links so that you can watch the top 3 of the competition!
+
+First place, movie created by *NewSwitcherop, foundlilly, afterhhouurs, neeedIove and sikkiexx*: 
+
+https://youtu.be/f_KfI5EyioM?si=VDzvJDgRTt1nd9-i
+
+Second place, movie created by *funkytoucan123*:
+
+https://www.youtube.com/watch?v=nZuGgxy90-o
+
+Third place, movie created by *lvsvnnyy*:
+
+https://youtu.be/1MX8KpQ6Jno?si=BjPh1WenpTXXhdfZ
+
+**Scrubs Design Competition!**
+
+What better way to start September than with some cool scrubs design? Teethyz's owner, *Dany (diste)*, hosted a scrub design competition where participants had to design their own fall theme design from the Roblox shirt and pants template. Here are the winners of the competition, these are truly some great designs. Maybe, we will see the winners helping with future Teethyz official scrubs?
+
+First place, with 600 robux... *carnathions*! 
+
+Second place, with 400 robux... *im_harv*!
+
+Third place, with 200 robux... *safa2015*!
+
+Congratulations! Make sure to check out the amazing designs below.
+
+__3 images__
+
+**Logo Design Contest!**
+
+Recently, one of our awesome Public Relations Officer, Emma (15thsecond) hosted a logo design contest for spirit week! Keeping with the fall theme of these upcoming months, the community had designed some amazing logos and I’m sure PR had a tough time choosing. Without further ado, here were the winners!
+
+First place, *lvsvnnyy*! (300 robux)
+
+Second place, *leiragirls*! (200 robux)
+
+Third place, with *vuelxq*! (100 robux) 
+
+A huge congratulations, make sure you take a look at the designs! (Peep the new Discord logo!)
+
+__3 images__
+
+**Fall Baking Competition!**
+
+Fall baking was day 2 of spirit week and the results did not disappoint! A big thank you to *Meeka (Michallol7)* for hosting this event. With a variety of differnet yummy desserts, the top 3 recieved the Event Winner title! If you want to take a look at the wonderful submissions, take a look in #community-photos and use the hashtag #FallBakingComp2024, in the mean time, here were the winners!
+
+1st place, *@leiragirls*!
+
+2nd place, *@tayiees*!
+
+3rd place *@90vAUST*! 
+
+Image
+Image
+Image
+
+**Fall Outfit Competition!**
+
+The last week of September, Emily (RBLXWithEmily), Public Relations Officer, hosted a Fall Outfit Competition! Every submission was great, here are the winners, which won the Event Winner role!
+
+First place, *sp9phzie*!
+
+Second place, *pawious*!
+
+Third place, *fantzsq*!
+
+Congratulations! Your outfits were truly amazing.
+
+__3 images__
+
+— *Section written by: Newswitcherop & aiessqi*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
