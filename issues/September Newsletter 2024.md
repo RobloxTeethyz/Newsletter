@@ -3,7 +3,7 @@
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Hello, everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover up mostly everything that occured during August! We hope you enjoy reading this month's newsletter!
+Hello, everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover up mostly everything that occured during September! We hope you enjoy reading this month's newsletter!
 
 - Newsletter Team
 
@@ -15,7 +15,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Hello, Teethyz! I hope you all had a great September, I sure did because I had the privilege of talking about & interviewing a couple of people on different 'Fall Songs' they have been listening to! September is widely recognized as a transition from summer to fall. So, Teethyz was interested in what people were listening to for the new season! All of these songs are amazing, and I recommend you all listen to at least a couple of them. Without further ado, here is what some of our management are listening to for the fall season! I first began with interviewing a couple of MR+!
+Hello, Teethyz! I hope you all had a great September, I sure did because I had the privilege of talking about & interviewing a couple of people on different *Fall Songs* they have been listening to! September is widely recognized as a transition from summer to fall. So, Teethyz was interested in what people were listening to for the new season! All of these songs are amazing, and I recommend you all listen to at least a couple of them. Without further ado, here is what some of our management are listening to for the fall season! I first began with interviewing a couple of MR+!
 
 Interviewer: fwoIklore
 
@@ -536,3 +536,171 @@ __3 images__
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+ʚ ݁ ˖  Hii Teethyzians! In this section I will be writing about awareness featured in the month of September! I would be very glad to share with you all the things I wrote about. Why not sit back and relax..and maybe grab some popcorn?!‌
+‌‌ 
+**National Suicide Prevention**
+
+- National Suicidal Prevention month is a time to raise awareness of this urgently important crisis. This month we try our best to spread hope and share vital information to people affected by suicide. Our goal is ensuring that individuals, friends and families have access to the resources they need to discuss suicide prevention and to seek help.
+
+**World Alzheimer's Month**
+
+- World Alzheimer's month is a global opportunity to raise dementia awareness and support people affected by the disease. To spread awareness they are asking you to share your story. Make sure your voice is heard and share your experience of dementia – however it affects you and your family.
+
+**9/11**
+
+- 9/11 is a month to raise awareness of all the families who sadly passed away during this attack. The September 11 attacks, commonly known as 9/11, were four coordinated Islamist terrorist suicide attacks carried out by al-Qaeda against the United States in 2001. On that morning, 19 terrorists hijacked four commercial airliners scheduled to travel from the East Coast to California.
+
+**Terry Fox Day**
+
+- Terry Fox Day is to spread awareness of Terry Fox who lost his right leg due to cancer at the age of 18. Terry Fox decided to run across Canada to raise awareness and money for cancer research. With the use of a customized running prosthesis, he set out from St. John's, Newfoundland, on 12 April 1980 and covered 5,373 km in 143 days — an average of 42 km (26 miles) per day. Almost every Canadian school is asked to do a Terry Fox run somewhere in September to show respect for Terry.
+
+ʚ ݁ ˖  This is now the end of the awareness section! I truly hope you enjoyed the section. Maybe you learnt some new stuff today as well! Thank you so much for reading, hope to see you again soon! I would definitely recommend reading the other Newsletters as well as our team really worked hard on them!
+
+— *Section written by: flowersandrainbowzz*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hey, Teethyz community! During the course of September, we had multiple incredible members of the community get awarded OTM/OTW titles for their hard work and dedication to the community! We got the chance to interview a few of them to get their perspectives on their incredible accomplishments.
+
+————————————————————————————
+
+**MR and HR of the Month**
+
+Interviewer: mythwical
+
+Interviewee: n1ghtfvllz
+
+*MROTM: n1ghtfvllz (Joseph)*
+1. What was your initial reaction when you saw that you were awarded MROTM?
+
+When I first saw that I got MROTM, I was completely shocked and couldn’t believe it.
+
+2. What advice would you give to others aspiring to be MROTM?
+   
+For anyone trying to get MROTM, I would say never give up, and always keep trying and be active!
+
+3. How has your journey been in Teethyz Dentist so far?
+
+My journey at Teethyz Dentist has been a completely positive experience so far, and I can’t wait to stay and make more amazing memories!
+
+Interviewer: mythwical
+
+Interviewee: marieluvqs
+
+*HROTM: marieluvqs (Marie)*
+1. What was your initial reaction when you saw that you were awarded HROTM?
+
+I was surprised! I suddenly started getting many pings and DMs, and at first, I didn’t even know what for. Once I found out, I was really happy and excited about it!
+
+2. What advice would you give to others aspiring to be HROTM?
+   
+I don’t think there’s a specific way to get HROTM! If you work hard and always try to do more than what’s expected, it will be noticed and appreciated. I’m really glad that my efforts paid off like this!
+
+3. How has your journey been in Teethyz Dentist so far?
+   
+I've enjoyed my journey so far. Of course, I've had highs and lows, but I'm glad I have some friends who make my experience more fun. I try to make as much of an impact as I can on the community and push for what I feel is right. Overall, I'm really grateful that I can be a part of the team!
+
+————————————————————————————
+
+**LR of the Week**
+
+Interviewer: lvsvnnyy
+
+Interviewee: lovelettterss
+
+*LROTW: lovelettterss (Bentley)*
+1. What was your initial reaction when you saw that you were awarded LROTW?
+
+I had just woken up, and I realized I got a ping in Staff Announcements. I thought it was for an update, but it turns out I got LROTW! I was so happy, and I couldn’t believe it, and I was getting so many pings!! It was truly a time to remember.
+
+2. What advice would you give to others aspiring to be an LROTW?
+
+A piece of advice I would give to others is don’t pressure yourself into doing something you don’t want to do. I had to take a week or two off from Teethyz because I was just playing consistently. Move at your own pace, don’t let others tell you what to do!! You’re awesome, and don’t forget that!!
+
+3. How has your journey been at Teethyz Dentist so far?
+   
+It has been absolutely wonderful, and I have made some great friends along the way, and I’m looking forward to making more! I’m so excited to see what the future has for me, and I can’t wait to continue my journey!
+
+Interviewer: lvsvnnyy
+Interviewee: S7icy
+
+*LROTW: S7icy (Marielle)*
+1. What was your initial reaction when you saw that you were awarded LROTW?
+
+I remember waking up to a bunch of pings, feeling so confused about what was going on. Then I realized people were congratulating me for LROTW. I was actually shocked and excited because I never expected to get it one day. It was the best thing to see right after waking up, LOL!!
+
+2. What advice would you give to others aspiring to be an LROTW?
+
+I'd say don't overwork yourself, just be yourself, and always socialize with others. I’m sure LROTW will be yours when the right time comes!
+
+3. How has your journey been at Teethyz Dentist so far?
+
+My journey at Teethyz has been really fun. I reconnected with close friends and made some new lovely friends, which I’m so grateful for. I feel so happy to have joined this Teethyz community, honestly, or I wouldn’t have met these amazing people! ❤️ x
+
+Interviewer: lvsvnnyy
+
+Interviewee: Em1lin3
+
+*LROTW: Em1lin3 (Emiline)*
+1. What was your initial reaction when you saw that you were awarded LROTW?
+
+I was very excited and didn’t even think that would happen.
+
+2. What advice would you give to others aspiring to be an LROTW?
+
+Hmm, try to work hard, attend shifts, and work hard at shifts.
+
+3. How has your journey been at Teethyz Dentist so far?
+
+It’s been awesome! I’ve made great friends, played an awesome game, and made memories of a lifetime!
+
+Interviewer: lvsvnnyy
+
+Interviewee: stargvrlavie
+
+*LROTW: stargvrlavie (Avie)*
+1. What was your initial reaction when you saw that you were awarded LROTW?
+
+I was jumping with happiness, and I immediately DM’ed my best friend Maddi to tell her. I was so overly happy and excited!! I was quite grateful that I got LROTW.
+
+2. What advice would you give to others aspiring to be an LROTW?
+
+Try your hardest, don’t overwork yourself, and keep working hard. I believe in you, and you’ve got this!
+
+3. How has your journey been at Teethyz Dentist so far?
+
+Absolutely awesome! I met a wonderful MR, made so many awesome new friends along the way, and I’ve had tons of amazing and fun memories at Teethyz!
+
+————————————————————————————
+
+**Alliance of the Month**
+
+Interviewer: lvsvnnyy
+
+Interviewee: stvcrgazer
+
+*AOTM: Boba Cafe 🧋*
+1. What has working with Teethyz been like from an affiliate perspective?
+
+Working alongside Teethyz is such a great feeling. They have an amazing community and management team that welcomes us with open arms whenever we come down to visit. Working with their Public Relations Team has also been a great experience. Teethyz is such an amazing alliance to collaborate with, so having the chance to work with them on various events is just awesome!
+
+2. What advice would you share with people who would like to get into PR in the future?
+
+My advice would be, just be yourself and do what you like! Public Relations has many great aspects, but if you don't enjoy yourself, then it’s not as fun. I feel like a lot of people see PR members as 'outgoing' and 'creative', but you don’t have to be all that to be a part of public relations, as long as you like the numerous aspects of PR! If you ever have the chance to try Public Relations, then I would say go for it. Who knows, maybe you'll develop a liking for anything PR-related!
+
+3. What is your favorite memory during your time in PR?
+
+Hmm, I actually have quite a few! But I think my ultimate favorite was when I got promoted to Public Relations Director! It was so random at such a random time too, so I didn’t expect any of it! I think the feeling of not knowing I would get promoted is what made the moment more special to me. Especially since Boba's PR team really welcomed me with lots of love, I felt like this was the best thing ever. My promotion to PRD really made me discover more about Public Relations, but also helped me discover amazing friends, which I will forever be grateful for! I have so many good memories of events and much more, but I think nothing will beat my PRD promotion!
+
+————————————————————————————
+
+That’s it for our OTM/OTW interviews! Thank you so much for reading through until the end! On behalf of the entire newsletter team, we’re unbelievably proud of all of your accomplishments and can’t wait to see what you achieve in the future.
+
+— *Section written by: lvsvnnyy & mythwical*
