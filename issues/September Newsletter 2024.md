@@ -711,3 +711,207 @@ Interviewee: stvcrgazer
 That’s it for our OTM/OTW interviews! Thank you so much for reading through until the end! On behalf of the entire newsletter team, we’re unbelievably proud of all of your accomplishments and can’t wait to see what you achieve in the future.
 
 — *Section written by: lvsvnnyy & mythwical*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hello, everyone! For this months newsletter, Grace and I have gathered a few MRs+ who got promoted this month. Followed by a list of all the promotions or this month!
+
+**INTERVIEWS:**
+
+__Question - What was your reaction to being promoted?__
+
+*dxmvix: ‘Promoted to *staff assistant*.’*
+
+- I was sooooo happy and like I never expected it so I was quite proud of myself!!
+
+*lcvelyjans: ‘Promoted to Office Manager.’*
+
+- When I got promoted, I was in a training which meant I could not be active on discord during the time whilst I was training I got a message from Laura saying I was promoted and I was very shocked when this happen. I could not believe it at the time but as time went on I really started to realise I was an OM.
+
+*Glowingxlightzz: ‘Promoted to Supervisor.’*
+
+- I was a bit shocked at first because I had been told earlier that I might be getting demoted, so when I heard that I was being promoted to a Supervisor instead, it caught me off guard. I didn't see it coming at all! But once the news sank in, I felt incredibly happy.
+
+*Lukefromthedead: ‘Promoted to Executive Assistant.’*
+
+- When I got promoted to EA I was a bit surprised but the way I was promoted sort of gave me a hint to what was going to happen. I was happy to see that my effort was clear to others, so much so that they'd given me a chance to become EA.
+
+*avvleqs: ‘Promoted to Staff Assistant.’*
+
+- I absolutely loved being promoted to Staff Assistant! It’s such an amazing experience and I got to know so many members of the MR team. It made me feel very proud of how hard I worked as an Oral Surgeon and was totally worth it! I was able to get so much help during my promotion and it was a lovely warm welcome from the team!
+
+*marieluvqs: ‘Promoted to Executive director .’*
+
+- I was really so surprised, I was not expecting it the tiniest bit! I honestly didn't believe it at first, it took me a couple days to fully process that I actually did get promoted. I'm really grateful for it!
+
+*oceanqzx: ‘Promoted to Supervisor .’*
+
+- Hey!! I was super happy to be promoted!! Leah knows I’m a big swiftie so the way she promoted me was super creative and clever. I wasn’t really expecting it but I’m happy it happened
+
+*foundlilly: ‘Promoted to Assistant manager .’*
+
+- I actually had my hopes down and didn’t expect to get promoted. As soon as I saw the message, I was so shocked and didn’t expect it. That same second, I got a ton of messages and I was really happy and excited! 🩷
+
+*NewSwitcherop: ‘Promoted to Dental Board.’*
+
+- I was in a big shock. I got out of ballet class and checked my pings. I had more than 100 pings and so many direct messages. When I saw #staff-announcements, my jaw honestly dropped. I am so grateful to be promoted!
+
+**OVERALL PROMOTIONS!!**
+
+__New Staff Assistants__
+
+- Carqliness, Pureswl, dxmvix, avvleqs & VivianPlays_123
+
+__New Supervisors__ 
+
+- blvcssed, fwoIklore, duIcetlly, oceanqzx, swtcakey, svncerely, Iluvura, vawerwii, kkvylas, Glowingxlightzz, pvrffect, bellqvx, & magsslolstupid
+
+__New Assistant Managers__
+
+- foundlilly, dev_chloe, aIessqi, vwrsions, & whosymme
+
+__New Office Managers__
+
+- lcvelyjans ioviinqbr iikqtieee n1ghtfvllz
+
+__New Dental Boards__
+
+- Newswitcherop, OceanAvny, & Lvsvnny
+
+__New Executive Assistant__
+
+- lukefromthedead
+
+__New Executive Director__
+
+- mariesluvqs
+
+*Section written by: Tradewinds2810 & eviegracea*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Heyhey everybody! Hope you've been enjoying the newsletter so far! Today, myself and Eleanor put together interviews of all the MRs who celebrated their birthday in September!
+
+**⋆𐙚 ₊ Question : What did you do to celebrate your birthday?**
+
+*Foundlilly - 3rd of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- I threw a birthday party! I invited all my friends to go out and eat together, we did fun activities and celebrated with a cake!
+
+*Bvubblys - 17th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- For my birthday I went to a place with many different High Ropes and I did some super fast slides which was so fun and they were almost as high as my house! I had McDonald’s for dinner and then I had lots of presents, and my family came! It was the best birthday!
+
+*Kkvylas - 6th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- For my birthday, I went to dinner with my family! I had great laughs and an unforgettable night.  I am forever grateful to my family and friends for celebrating my special day with me!
+
+*Test_account3310 - 11th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- I went out to get dinner with my family and just enjoyed the rest of my day with friends and family!
+
+*gvbbiess - 10th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- For my birthday, I had an amazing time at the lake swimming with some friends. Afterward, we headed to The Cheesecake Factory for dinner!
+
+*J6NN4 - 9th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- I went to dinner with friends and there was a birthday server made for me! <33
+‌
+*bellqvx - 14th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- The day before my birthday, I took a couple photos with a few birthday decorations. On the day of, I celebrated my birthday by heading to lunch with my mom and dad. There, I ate some steak and made my way back home where my sisters and brother sang happy birthday and ate cake. After eating a slice of cake, we made our way to a fun hangout spot where we played a round of mini golf, bowling, and played a couple of arcade games! 👯‍♀️👯‍♀️
+
+*soflyia - 27th of September*
+
+˙ . ꒷🍰 . 𖦹˙—
+
+- So for my last birthday, my 15th, I had a quinceañera.
+
+*Section written by: vcorria and SiimplyBunnwy*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+September Memories
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+ৎ⁝  Hello everyone, during this month we have had some amazing pictures made by our management team and community! Maybe you will see yourself between one! We hope you had a good month enjoy this time to look back on the month of September!
+
+**Shift Photos ♡**
+
+Let's get started with some shift photo’s! We have joined them all into a collage. Are you able to spot yourself in any of this photos? Let's check it out!
+
+ Shift collage picture
+
+**Training Photos ♡**
+
+Our management team has captured many photos for you all to enjoy! Take a look and see how creative our team is with their photos!
+
+Training collage picture
+
+**Alliance Photos ♡**
+
+As we do every month, we have visited our alliances just as they have visited us, and we’ve enjoyed it a lot. Alliances are very important to us because we help each other. Here you have a collage where you can see our best alliance photos, we hope you enjoy it!
+
+Alliance collage picture
+
+**Funny Photos ♡**
+
+We have definitely had some laughable moments this month. This collage displays a few humorous moments! I hope the photos make you laugh like it made the Photography Team laugh. Enjoy!
+
+Funny collage picture
+
+⤹:  And that's sadly everything from us. We hope you enjoyed these fabulous collages, and perhaps found yourself in one of them too! Have fun reading the rest of this newsletter. ❧
+
+*Section written by: Phtography team*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our September Newsletter! See you all next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: RBLXWithEmily
+
+Newsletter Board: PerfectlyAnnie, vaemmlaqx, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, & foundlilly 
+
+Section Authors: vcorria, steveygamer2, Ioviinqbr, mariesluvqs, svphiees, & lvsvnnyy
+
+Photographers: UhMeliaa, ethvrweal, NewSwitcherop, Vinnielittle14, iikqtieee & adsianmendsiam
+
+Social Assistants: Tradewinds2810, eviegracea, fwoIklore, SiimplyBunnwy, & aIessqi
+
+Editors: TailaBzp, Lukefromthedead, flowersandrainbowzz, kkennedys, 1uvxflqra, & OceanAvny
