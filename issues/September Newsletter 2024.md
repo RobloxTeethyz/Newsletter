@@ -10,7 +10,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![September Fall Songs](https://github.com/user-attachments/assets/9bbbd3b0-aa1d-4366-8950-4295776d772b)
+![Fall Songs](https://github.com/user-attachments/assets/9bbbd3b0-aa1d-4366-8950-4295776d772b)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -75,10 +75,10 @@ Some other songs include:
 
 ・Pink Pony Club - Chappell Roan 
 
-Thank you to steveygamer2, carqlinees, kkvylas, bellqvx, lvsvnnyy and svphiees for these song suggestions! 
+Thank you to *steveygamer2, carqlinees, kkvylas, bellqvx, lvsvnnyy and svphiees* for these song suggestions! 
 If you would like the full playlist of these songs, check out the “Teethyz Fall Playlist” on Spotify!
 
-Link: https://open.spotify.com/playlist/10i5mZ8er2g3LQyVR3xZRJ?si=d439e580fd6243f4&pt=8a3610fa3c3f63b34754bce1a334a19e
+Link: https://open.spotify.com/playlist/10i5mZ8er2g3LQyVR3xZRJ?si=d439e580fd6243f4&pt=8a3610fa3c3f63b34754bce1a334a19e 
 
 ⤹  ⁝  Personally, I love listening to music. It is something that brings me comfort 24/7, and is always something I can look forward to whenever I am having a bad day or even a good day! So, here are some of my top picks for fall songs! Give them a listen or check them out on the Teethyz Fall Playlist!
 
@@ -105,7 +105,7 @@ Link: https://open.spotify.com/playlist/10i5mZ8er2g3LQyVR3xZRJ?si=d439e580fd6243
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![September Stories](https://github.com/user-attachments/assets/34caa3af-21fd-4a31-b014-20da5ff89a9b)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -185,7 +185,7 @@ Thank you so much for reading the short stories section of the September Newslet
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![Fall Recipes](https://github.com/user-attachments/assets/57df3802-ad64-45a1-a5ee-b672109ea6d8)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -448,7 +448,7 @@ Transfer the cookies to a cooling rack and cool for 15 minutes, or until firm
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![September Events Recap](https://github.com/user-attachments/assets/40cae3b7-64ce-41a1-bfc5-c3b41f5f1a18)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -532,7 +532,7 @@ __3 images__
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![September Awareness](https://github.com/user-attachments/assets/ae4cc084-ec2e-447d-b80c-64aa75ea86d8)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -562,7 +562,7 @@ __3 images__
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![September OTM/OTW](https://github.com/user-attachments/assets/45abadea-36e4-414e-aef2-e4d583f0cf7c)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -715,7 +715,7 @@ That’s it for our OTM/OTW interviews! Thank you so much for reading through un
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+![September Promotions](https://github.com/user-attachments/assets/e9126b75-bca4-4409-908c-c1d6d5e0a6bf)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -797,7 +797,7 @@ __New Executive Director__
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+[September Birthdays](https://github.com/user-attachments/assets/6fdb02fd-f143-4d2b-b6d9-127dd8bcf0f3)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -859,8 +859,8 @@ Heyhey everybody! Hope you've been enjoying the newsletter so far! Today, myself
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
-September Memories
+![September Memories](https://github.com/user-attachments/assets/85cca68c-0bb8-47fc-b272-a81b0cdad0e2)
+
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
