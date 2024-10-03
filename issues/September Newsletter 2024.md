@@ -483,7 +483,9 @@ Third place, with 200 robux... *safa2015*!
 
 Congratulations! Make sure to check out the amazing designs below.
 
-__3 images__
+![1st Fall Scrubs](https://github.com/user-attachments/assets/8bd8b3ec-1c1d-44a0-9abd-6581223a8dc9)
+![2nd Fall Scrubs](https://github.com/user-attachments/assets/a3ea8ca9-cc84-41f0-83ce-f44ab401c955)
+![3rd Fall Scrubs](https://github.com/user-attachments/assets/6151b317-2a1e-4b7a-9da2-efd9c623ac5d)
 
 **Logo Design Contest!**
 
@@ -497,7 +499,9 @@ Third place, with *vuelxq*! (100 robux)
 
 A huge congratulations, make sure you take a look at the designs! (Peep the new Discord logo!)
 
-__3 images__
+![1st Logo Design](https://github.com/user-attachments/assets/cae21afe-adc2-442f-b8af-99818783ecc5)
+![2nd Fall Design](https://github.com/user-attachments/assets/61e15ad9-25fb-4a5a-82e4-d5614777a8b9)
+![3rd Fall Design](https://github.com/user-attachments/assets/e5460721-bb83-4d17-8b0b-a18ac9847fe1)
 
 **Fall Baking Competition!**
 
@@ -509,9 +513,9 @@ Fall baking was day 2 of spirit week and the results did not disappoint! A big t
 
 3rd place *@90vAUST*! 
 
-Image
-Image
-Image
+![1st Fall Cooking Comp](https://github.com/user-attachments/assets/74b39376-9a18-4f29-83ce-28b9b4469116)
+![2nd Fall Cooking Comp](https://github.com/user-attachments/assets/aeaa5bec-baed-46be-b2d9-0c20f3f67e58)
+![3rd Fall Cooking Comp](https://github.com/user-attachments/assets/b482f400-b523-4e59-88d3-ee9a89fdd9e2)
 
 **Fall Outfit Competition!**
 
@@ -525,7 +529,9 @@ Third place, *fantzsq*!
 
 Congratulations! Your outfits were truly amazing.
 
-__3 images__
+![1st Fall Outfit](https://github.com/user-attachments/assets/1e67e26a-b518-4dd4-ac63-9c30f6f3e0f8)
+![2ne Fall Outfit](https://github.com/user-attachments/assets/0d8a290c-bb75-499f-89a3-49a6466bc245)
+![3rd Fall Outfit](https://github.com/user-attachments/assets/132c23db-7ddc-4628-8ec4-1d7f7caeb2bc)
 
 — *Section written by: Newswitcherop & aiessqi*
 
@@ -797,7 +803,7 @@ __New Executive Director__
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-[September Birthdays](https://github.com/user-attachments/assets/6fdb02fd-f143-4d2b-b6d9-127dd8bcf0f3)
+![September Birthdays](https://github.com/user-attachments/assets/6fdb02fd-f143-4d2b-b6d9-127dd8bcf0f3)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -870,25 +876,25 @@ Heyhey everybody! Hope you've been enjoying the newsletter so far! Today, myself
 
 Let's get started with some shift photo’s! We have joined them all into a collage. Are you able to spot yourself in any of this photos? Let's check it out!
 
- Shift collage picture
+![Shift Collage](https://github.com/user-attachments/assets/5a0fee55-62e4-4de1-a66f-247a0fabbfff)
 
 **Training Photos ♡**
 
 Our management team has captured many photos for you all to enjoy! Take a look and see how creative our team is with their photos!
 
-Training collage picture
+![Training Collage](https://github.com/user-attachments/assets/6255c030-bb71-476c-ada0-04bf47d27df9)
 
 **Alliance Photos ♡**
 
 As we do every month, we have visited our alliances just as they have visited us, and we’ve enjoyed it a lot. Alliances are very important to us because we help each other. Here you have a collage where you can see our best alliance photos, we hope you enjoy it!
 
-Alliance collage picture
+![Alliance Collage](https://github.com/user-attachments/assets/6e85ccce-1009-42f1-ae5b-2f18f1c1ba80)
 
 **Funny Photos ♡**
 
 We have definitely had some laughable moments this month. This collage displays a few humorous moments! I hope the photos make you laugh like it made the Photography Team laugh. Enjoy!
 
-Funny collage picture
+![Funny Collage](https://github.com/user-attachments/assets/abb52f0e-709b-4eec-9593-5664d0ddd0ec)
 
 ⤹:  And that's sadly everything from us. We hope you enjoyed these fabulous collages, and perhaps found yourself in one of them too! Have fun reading the rest of this newsletter. ❧
 
