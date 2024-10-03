@@ -1,4 +1,4 @@
-![September Header](https
+<img width="1076" alt="Screenshot 2024-09-30 at 9 00 19 PM" src="https://github.com/user-attachments/assets/f2553cd6-4646-41cf-8d43-7b0c3e74f9b9">
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
