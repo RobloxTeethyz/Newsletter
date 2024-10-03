@@ -1,4 +1,4 @@
-<img width="1076" alt="Screenshot 2024-09-30 at 9 00 19 PM" src="https://github.com/user-attachments/assets/f2553cd6-4646-41cf-8d43-7b0c3e74f9b9">
+![September Header](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -10,7 +10,8 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1057" alt="Screen Shot 2024-09-03 at 9 17 12 PM" src="https://github.com/user-attachments/assets/d6982644-9f6e-4ad3-a52f-7d0f65b602b4"/>
+<img width="1077" alt="Screenshot 2024-09-30 at 9 02 45 PM" src="https://github.com/user-attachments/assets/9bbbd3b0-aa1d-4366-8950-4295776d772b">
+
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
