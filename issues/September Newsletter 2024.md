@@ -10,8 +10,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-<img width="1077" alt="Screenshot 2024-09-30 at 9 02 45 PM" src="https://github.com/user-attachments/assets/9bbbd3b0-aa1d-4366-8950-4295776d772b">
-
+![September Fall Songs](https://github.com/user-attachments/assets/9bbbd3b0-aa1d-4366-8950-4295776d772b)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
