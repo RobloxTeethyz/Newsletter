@@ -784,7 +784,7 @@ __New Assistant Managers__
 
 __New Office Managers__
 
-- lcvelyjans ioviinqbr iikqtieee n1ghtfvllz
+- lcvelyjans, ioviinqbr, iikqtieee, & n1ghtfvllz
 
 __New Dental Boards__
 
