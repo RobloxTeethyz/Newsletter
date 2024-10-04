@@ -898,7 +898,7 @@ We have definitely had some laughable moments this month. This collage displays 
 
 ⤹:  And that's sadly everything from us. We hope you enjoyed these fabulous collages, and perhaps found yourself in one of them too! Have fun reading the rest of this newsletter. ❧
 
-*Section written by: Phtography team*
+*Section written by: Photography team*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
