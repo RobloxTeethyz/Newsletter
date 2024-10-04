@@ -912,7 +912,7 @@ Newsletter Board: PerfectlyAnnie, vaemmlaqx, mckcnzies, & witty20007
 
 Site Provider/Advisor: Jyrezo
 
-Graphics: michallol7, & foundlilly 
+Graphics: michallol7 & foundlilly 
 
 Section Authors: vcorria, steveygamer2, Ioviinqbr, mariesluvqs, svphiees, & lvsvnnyy
 
