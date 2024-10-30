@@ -168,7 +168,7 @@ I’m doing a group costume with 4 of my friends! We’re dressing up like the T
 
 ʚ ݁ ˖  This is now the end of the Halloween Costumes section! I truly hope you enjoyed the section. Maybe you might feel inspired to have a certain Halloween costume idea now! Thank you so much for reading, hope to see you again soon! I would definitely recommend reading the other Newsletters as well as our team really worked hard on it!
 
- — *Section written by: flowersandrainbowzz*
+— *Section written by: flowersandrainbowzz*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -223,7 +223,7 @@ I’m doing a group costume with 4 of my friends! We’re dressing up like the T
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October Awareness]()
+![October Awareness](https://github.com/user-attachments/assets/557671eb-8783-40fb-bc0d-d4c6674e8b18)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -248,7 +248,7 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 
 ʚ ݁ ˖  This is now the end of the awareness section! I truly hope you enjoyed the section. Hopefully, you learned some new stuff today as well! Thank you so much for reading, hope to see you again soon! I would definitely recommend reading the other Newsletters as well as our team really worked hard on it!
 
- — *Section written by: flowersandrainbowzz*
+— *Section written by: flowersandrainbowzz*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -258,7 +258,9 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+
  — *Section written by: SiimplyBunnwy*
+
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -270,9 +272,9 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 
 ![Tiktok](https://github.com/user-attachments/assets/8a55ab90-2d48-45c5-a6a9-727419b87c95)
 
- — *Section made by: 17thwish*
+— *Section made by: 17thwish*
 
- ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
 ![October Birthdays]()
@@ -288,16 +290,30 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆  17thwish: for my birthday, i celebrated after school with my friends at starbucks and went out to the river and hung out there! after going to the river we went back home where there was cake and other food that we ate and then everyone went home. the next day my parents celebrated with me by giving gifts and going out to eat somewhere that i wanted too! it was a great day and i wouldn’t trade it for anything!!! ❤️ 𐙚 ‧₊˚
 
+![Screenshot 2024-10-22 at 9 07 27 PM](https://github.com/user-attachments/assets/9100b00a-7837-480f-a540-b79a95b19950)
+
 ⋆✴︎˚｡⋆  Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
+
+![Linatheunicorn](https://github.com/user-attachments/assets/59413364-e3e2-4027-98ff-de8494df9d50)
 
 ⋆✴︎˚｡⋆  July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
 
-⋆✴︎˚｡⋆  lcvelyjan: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
-Mm
-⋆✴︎˚｡⋆  Vinnielittle14:  Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
+![Screenshot 2024-10-29 at 10 07 43 PM](https://github.com/user-attachments/assets/432663b5-159d-402e-8fdf-9406032e8d1f)
 
-⋆✴︎˚｡⋆ mwaxaurora:  I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆  iamjan12312: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
+
+![Screenshot 2024-10-29 at 10 04 28 PM](https://github.com/user-attachments/assets/8b417d7a-7b17-4678-97ba-4b6d55cbc541)
+
+⋆✴︎˚｡⋆  Vinnielittle14: Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
+
+![Screenshot 2024-10-22 at 9 07 45 PM](https://github.com/user-attachments/assets/8fa4a165-f8d9-4289-907f-95eb51d485d6)
+
+⋆✴︎˚｡⋆  mwaxaurora: I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
+
+![Screenshot 2024-10-22 at 9 08 21 PM](https://github.com/user-attachments/assets/26ce49a6-dc31-4b6c-a3fe-8d01ce8c3013)
 
 ⋆✴︎˚｡⋆ Witty20007 𐙚 ‧₊˚
 
-Section by eviegracea and Tradewinss2810
+![Screenshot 2024-10-29 at 10 04 10 PM](https://github.com/user-attachments/assets/0274b9b8-3c2b-4826-9e7b-1a26caf0d587)
+
+— *Section written by: eviegracea & Tradewinds2810*
