@@ -1,4 +1,4 @@
-![October Header](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
+![October Header]()
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -219,3 +219,85 @@ I’m doing a group costume with 4 of my friends! We’re dressing up like the T
 ˚ʚ Now this one will really get you into the spirit of Halloween. Be it a scary movie at 12 AM with all of the lights off and only a bowl of popcorn beside you, or a story telling of the horrors of Halloween night accompanied by a flashlight shining eerily on your face, you’re guaranteed to be scared to your core!
 
 — *Section written by: svncerIy & lvsvnnyy*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![October Awareness]()
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+ʚ ݁ ˖  Hii Teethyzians! In this section, I will be writing about awareness featured in the month of __**October**__! I would be very glad to share with you all the things I wrote about. Why not sit back and relax..and maybe grab some popcorn?!
+
+*World Mental Health Day:*
+
+World Mental Health Day is observed on October 10 each year to raise awareness about mental health issues and promote mental well-being globally. It encourages discussions, reduces stigma, and highlights the importance of mental health care. Each year features a specific theme to address particular mental health challenges and advocate for better support and resources.
+
+*Diwali:*
+
+Diwali, also known as the Festival of Lights, is a major Hindu festival celebrated by millions around the world. It usually lasts five days and signifies the victory of light over darkness and good over evil. Key rituals include lighting oil lamps (diyas), decorating homes, exchanging gifts, and participating in prayers (pujas) dedicated to deities like Lakshmi and Ganesha. Diwali is also celebrated by other communities, including Jains and Sikhs, each with its cultural significance and traditions.
+
+*Breast Cancer Awareness Day:*
+
+Breast Cancer Awareness Day, often observed on October 13, is part of Breast Cancer Awareness Month in October. The day aims to raise awareness about breast cancer, educate the public on prevention and early detection, and support those affected by the disease. It encourages activities like awareness campaigns, fundraising for research, and sharing survivor stories to promote understanding and support for breast cancer patients.
+‌‌
+*Black Cat Day:*
+
+Black Cat Day, celebrated on October 27, is dedicated to raising awareness about the misconceptions and superstitions surrounding black cats. It promotes the idea that black cats are not unlucky but rather deserving of love and care, just like any other pet. The day encourages the adoption and appreciation of black cats, highlighting their unique beauty and companionship.
+
+ʚ ݁ ˖  This is now the end of the awareness section! I truly hope you enjoyed the section. Hopefully, you learned some new stuff today as well! Thank you so much for reading, hope to see you again soon! I would definitely recommend reading the other Newsletters as well as our team really worked hard on it!
+
+ — *Section written by: flowersandrainbowzz*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![October OTM/OTW](https://github.com/user-attachments/assets/185c3399-2717-4737-b0c6-6619fc8c73f7)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+ — *Section written by: SiimplyBunnwy*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![October Tiktok 2024]()
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Tiktok](https://github.com/user-attachments/assets/8a55ab90-2d48-45c5-a6a9-727419b87c95)
+
+ — *Section made by: 17thwish*
+
+ ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![October Birthdays]()
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+This month we have been celebrating multiple MR+ birthdays! Below is how they celebrated their birthdays!
+
+⋆✴︎˚｡⋆  OceanAvny: It was my 18th birthday so I went out with my friends! I saw some of my family and had a small gathering too. Later, I got surprised with a trip to Vegas. I went with my friends and my cousin, we stayed there for a week and I had sooo much fun! 𐙚 ‧₊˚
+
+![Screenshot 2024-10-29 at 9 45 05 PM](https://github.com/user-attachments/assets/47510287-7f88-4278-a6ea-af2614b5c2a6)
+
+⋆✴︎˚｡⋆  17thwish: for my birthday, i celebrated after school with my friends at starbucks and went out to the river and hung out there! after going to the river we went back home where there was cake and other food that we ate and then everyone went home. the next day my parents celebrated with me by giving gifts and going out to eat somewhere that i wanted too! it was a great day and i wouldn’t trade it for anything!!! ❤️ 𐙚 ‧₊˚
+
+⋆✴︎˚｡⋆  Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
+
+⋆✴︎˚｡⋆  July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
+
+⋆✴︎˚｡⋆  lcvelyjan: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
+Mm
+⋆✴︎˚｡⋆  Vinnielittle14:  Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
+
+⋆✴︎˚｡⋆ mwaxaurora:  I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
+
+⋆✴︎˚｡⋆ Witty20007 𐙚 ‧₊˚
+
+Section by eviegracea and Tradewinss2810
