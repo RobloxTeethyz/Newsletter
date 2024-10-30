@@ -13,7 +13,6 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ![October Trends](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
 
 
-
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 .  𓏲 Greetings, Teethyz community! We hope you are enjoying the October Newsletter so far. This section is packed with exciting tips and ideas for making the most of the fall season this October! From cozy fashion to seasonal flavors, we’ve got you covered. We hope you enjoy reading this section!
@@ -228,7 +227,7 @@ I’m doing a group costume with 4 of my friends! We’re dressing up like the T
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-ʚ ݁ ˖  Hii Teethyzians! In this section, I will be writing about awareness featured in the month of __**October**__! I would be very glad to share with you all the things I wrote about. Why not sit back and relax..and maybe grab some popcorn?!
+ʚ ݁ ˖  Hii Teethyzians! In this section, I will be writing about awareness featured in the month of **October**! I would be very glad to share with you all the things I wrote about. Why not sit back and relax..and maybe grab some popcorn?!
 
 *World Mental Health Day:*
 
@@ -318,3 +317,33 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 ![Screenshot 2024-10-29 at 10 04 10 PM](https://github.com/user-attachments/assets/0274b9b8-3c2b-4826-9e7b-1a26caf0d587)
 
 — *Section written by: eviegracea & Tradewinds2810*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![October Memories]()
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+*Section written by: Photography team*
+
+► Thank you for reading our **October** Newsletter! See you all next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: RBLXWithEmily
+
+Newsletter Board: PerfectlyAnnie, vaemmlaqx, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, foundlilly, Synceps, & vcrsity
+
+Section Authors: vcorria, steveygamer2, 1stIovee, mariesluvqs, svphiees, lvsvnnyy, carolineinthemorning, ayakoos, avvieqs, & svncereiy
+
+Photographers: UhMeliaa, ethvrweal, Vinnielittle14, iikqtieee, adsianmendsiam, AlfiundJo, & mcllorys
+
+Social Assistants: Tradewinds2810, eviegracea, 17thwish, SiimplyBunnwy, aIessqi, swtcakey, & cbvopppl
+
+Editors: TailaBzp, Lukefromthedead, kkennedys, 1uvxflqra, OceanAvny, blvcssed, n1ghtfvllz, & vawerwii
