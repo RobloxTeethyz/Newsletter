@@ -285,36 +285,35 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆  OceanAvny: It was my 18th birthday so I went out with my friends! I saw some of my family and had a small gathering too. Later, I got surprised with a trip to Vegas. I went with my friends and my cousin, we stayed there for a week and I had sooo much fun! 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 9 45 05 PM](https://github.com/user-attachments/assets/47510287-7f88-4278-a6ea-af2614b5c2a6)
+![OceanAvny](https://github.com/user-attachments/assets/47510287-7f88-4278-a6ea-af2614b5c2a6)
 
 ⋆✴︎˚｡⋆  17thwish: for my birthday, i celebrated after school with my friends at starbucks and went out to the river and hung out there! after going to the river we went back home where there was cake and other food that we ate and then everyone went home. the next day my parents celebrated with me by giving gifts and going out to eat somewhere that i wanted too! it was a great day and i wouldn’t trade it for anything!!! ❤️ 𐙚 ‧₊˚
 
-![Screenshot 2024-10-22 at 9 07 27 PM](https://github.com/user-attachments/assets/9100b00a-7837-480f-a540-b79a95b19950)
+![17thwish](https://github.com/user-attachments/assets/9100b00a-7837-480f-a540-b79a95b19950)
 
 ⋆✴︎˚｡⋆  Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 10 07 43 PM](https://github.com/user-attachments/assets/c36ab637-3010-4867-a296-f58ebe42a4d9)
-
+![Linatheunicorn](https://github.com/user-attachments/assets/c36ab637-3010-4867-a296-f58ebe42a4d9)
 
 ⋆✴︎˚｡⋆  July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 10 11 38 PM](https://github.com/user-attachments/assets/56189a24-3ab2-4a19-82f1-70c4c3a75d3b)
+![July_IsAMonth](https://github.com/user-attachments/assets/56189a24-3ab2-4a19-82f1-70c4c3a75d3b)
 
 ⋆✴︎˚｡⋆  iamjan12312: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 10 04 28 PM](https://github.com/user-attachments/assets/8b417d7a-7b17-4678-97ba-4b6d55cbc541)
+![iamjan12312](https://github.com/user-attachments/assets/8b417d7a-7b17-4678-97ba-4b6d55cbc541)
 
 ⋆✴︎˚｡⋆  Vinnielittle14: Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
 
-![Screenshot 2024-10-22 at 9 07 45 PM](https://github.com/user-attachments/assets/8fa4a165-f8d9-4289-907f-95eb51d485d6)
+![Vinnielittle14](https://github.com/user-attachments/assets/8fa4a165-f8d9-4289-907f-95eb51d485d6)
 
 ⋆✴︎˚｡⋆  mwaxaurora: I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
 
-![Screenshot 2024-10-22 at 9 08 21 PM](https://github.com/user-attachments/assets/26ce49a6-dc31-4b6c-a3fe-8d01ce8c3013)
+![mwaxaurora](https://github.com/user-attachments/assets/26ce49a6-dc31-4b6c-a3fe-8d01ce8c3013)
 
 ⋆✴︎˚｡⋆ Witty20007 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 10 04 10 PM](https://github.com/user-attachments/assets/0274b9b8-3c2b-4826-9e7b-1a26caf0d587)
+![Witty20007](https://github.com/user-attachments/assets/0274b9b8-3c2b-4826-9e7b-1a26caf0d587)
 
 — *Section written by: eviegracea & Tradewinds2810*
 
