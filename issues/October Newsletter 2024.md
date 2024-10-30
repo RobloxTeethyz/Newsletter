@@ -269,12 +269,6 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![Tiktok](https://github.com/user-attachments/assets/8a55ab90-2d48-45c5-a6a9-727419b87c95)
-
-— *Section made by: 17thwish*
-
-▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
-
 
 ![October Birthdays](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
 
