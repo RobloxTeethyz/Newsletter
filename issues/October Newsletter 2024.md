@@ -294,11 +294,12 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆  Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
 
-![Linatheunicorn](https://github.com/user-attachments/assets/59413364-e3e2-4027-98ff-de8494df9d50)
+![Screenshot 2024-10-29 at 10 07 43 PM](https://github.com/user-attachments/assets/c36ab637-3010-4867-a296-f58ebe42a4d9)
+
 
 ⋆✴︎˚｡⋆  July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
 
-![Screenshot 2024-10-29 at 10 07 43 PM](https://github.com/user-attachments/assets/432663b5-159d-402e-8fdf-9406032e8d1f)
+![Screenshot 2024-10-29 at 10 11 38 PM](https://github.com/user-attachments/assets/56189a24-3ab2-4a19-82f1-70c4c3a75d3b)
 
 ⋆✴︎˚｡⋆  iamjan12312: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
 
