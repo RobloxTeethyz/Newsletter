@@ -257,9 +257,128 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Hello, Teethyz community! Throughout October, several outstanding members of the community were awarded OTM/OTW titles for their hard work and dedication. We had the opportunity to interview some of them to hear their perspectives on their remarkable achievements.
+
+•༶•┈┈┈┈┈┈.˚₊౨ৎ ₊˚. ┈┈┈┈┈┈•༶•
+
+**MR and HR of the Month**
+
+Interviewer: SiimplyBunnwy
+
+Interviewee: flowersandrainbowzz
+
+*What was your initial reaction to seeing you receive mr of the month?*
+
+My initial reaction when I first received MR of the Month was confused. STORY TIME!! When I got home from school I opened my DMs first, and saw a bunch of people congratulating me, and my first thought was "Oh! Did I get a position I applied for in another group?!" but then I also thought, "All the people congratulating me are from Teethyz though.." BUT the last DM I opened said "CONGRATS ON MROTM!!" and I was SO confused. I then went into Staff Chat to congratulate the people who got promoted that day, but then I saw a badge next to my name! I scrolled down and saw that I had a role saying MR of the Month..I felt so excited of how I got noticed! All the MRs are so amazing, so it just made me feel so lucky to be the one standing out for September. AND UHM, I actually nearly fell off my chair... I would definitely say the excitement took over!!
+
+*What advice would you give to LR’s who are trying to become an MR in the future?*
+
+Some advice I would give to LRs who are trying to become an MR in the future would be to never give up on your dream of being on the Management Team! Your hard work will always pay off, you just need to believe in yourself! Everyone who is an MR+ here has been an LR like you, and we all had similar experiences! If you ever need someone to encourage you not to give up, I'm always here if you need me! As an LR I almost decided to give up, but then one amazing person told me not to, and I'm so glad they did. It's all sooo worth it in the end. Being an LR has a lot of fun perks to it; you can attend Recruitment Shifts, you can earn Hardest Worker in shifts, you also have a chance of earning some recognition if you get LR of the Week! My advice would definitely be to never give up, and always follow your dreams. You got this! ❤️
+
+*How has your experience been at Teethyz Dentist so far?*
+
+My experience at Teethyz has been absolutely amazing so far!! The community here is so awesome, and I'm so excited to see what Teethyz will hold for us in the future. A special shoutout to the amazing LRs, MRs, HRs, SHRs, and developers of Teethyz that made this possible! All of you amazing Teethyzians are what makes the community so special and unique! Everyone here is super friendly and supportive. I have definitely made some special and unforgettable memories here. Teethyz is for sure one of the best communities I have even been in! As always, keep being you! You are all sooo wonderful and amazing and what makes Teethyz Dentist stand out. Love you all so much!
+
+Interviewer: SiimplyBunnwy 
+
+Interviewee: vcorria
+
+*What was your initial reaction to seeing you receive HR of the month?*
+
+I was playing one of those line simulator games on Roblox when I started hearing all these pings go off on my phone. I was a bit shocked since I didn't expect it!
+
+*What advice would you give to LR’s who are trying to become MR in the future?
+
+My personal advice would be don't overwork yourself! Spending 30 minutes to one hour a day is more than enough. Attend shifts, recruitment shifts, and communicate in the discord from time to time. Prioritize maintaining consistent activity along with being involved within the community. Your hard work is always being recognized and is definitely appreciated! 🤍
+
+*How has your experience been at Teethyz Dentist so far?*
+
+I’ve been an MR since March 2023 and it's been great so far!
+
+**LR of the Week**
+
+Interviewer: SiimplyBunnwy
+
+Interviewee: starlqcies 
+
+*What was your initial reaction upon seeing that you received the "Low rank of the Week" award?*
+
+I was very surprised but at the same time knew I deserved it because of my hard-work and dedication that I had done. I’ve been very respectful and responsible with my rank, and knew I could achieve LROW I’m very grateful and thankful for it as well!
+
+*What advice would you give to others aspringing to be LR of the week?*
+
+To always show dedication, hard-work, honesty, professionalism, and to show respect and responsibility with your rank. Always think positive don’t ever think other wise, the most important thing is to have fun and interact with others!
+
+*How has your experience been at Teethyz Dentist so far?*
+
+My experience at Teethyz Dentist has been phenomenal! I’ve met so many great people, and being able to interact with even more people and work has boosted my experience up above anything.
+
+Interviewer: SiimplyBunnwy
+
+Interviewee: iluvseoul
+
+*What was your initial reaction upon seeing that you received the "Low rank of the Week" award?*
+
+I was initially shocked as I was in-game and checked my Discord to 21 pings 😭. When I saw the announcement, I was very excited and shaking.
+
+*What advice would you give to others aspringing to be LR of the week?*
+
+Honestly, just be active. Join and participate in shifts, complete appointments, and try to meet new people. Keep it all balanced. 💗
+
+*How has your experience been at Teethyz Dentist so far?*
+
+It's been really great. Earning points has been both easy and challenging. Sometimes it can be a little demotivating, but the people I've met here have already warmed my heart. They have been nothing but welcoming to me. I always look forward to shifts because I think they're so fun!
+
+Interviewer: alzssi
+
+Interviewee: Limonaka_Youtube
+
+*What was your initial reaction upon seeing that you received the "Low rank of the Week" award?*
+
+When I got up in the morning... I took my phone in my hand and I see that I have a lot of notifications, which surprised me a lot. I opened Discord, entered the Teethyz communication server and saw that I was Low rank of the week! I was really happy! I was so happy I jumped! I was so grateful for that title.
+
+*What advice would you give to others aspringing to be LR of the week?*
+
+The most important advice for those who want to be LR of the week - never give up, believe in yourself! This will help you stay motivated. Try to be active, be on every shift you can and try to get Hardworker on shifts! Also, don't forget to write or talk on the communications server Teethyz! If you manage to do this, you have a chance to be LR of the week!
+
+*How has your experience been at Teethyz Dentist so far?*
+
+As soon as I joined teehyz I knew I would love this game! After becoming a Staff member I would enter the game every day and claim appointments. That's how fast I became an Oral Surgeon, in less than 2 weeks! Back then, you had to have a lot more points to become an Oral Surgeon. After becoming an Oral Surgeon, I took a break because I didn't have time for teethyz. Just about a month ago I decided to come back! C:
+
+Interviewer: alzssi
+
+Interviewee: crimetats
+
+*What was your initial reaction upon seeing that you received the "Low rank of the Week" award?*
+
+1) I think I was initially shocked when I got pinged and saw the message in staff announcements, but I was very happy getting it and I am very thankful for being selected as LR of the week.
+
+*What advice would you give to others aspringing to be LR of the week?*
+
+2)  Advice I’d give.. hm very tricky question but I believe my advice will be it’s very easy to be unmotivated so I suggest playing with friends during shifts or try connecting with others, and of course, y’all probably heard this many times but putting in hard work does pull off, so don’t feel saddened if you feel like your efforts aren’t showing, I promise they are! 🙂
+
+*How has your experience been at Teethyz dentist so far?*
+
+3) I’ll be 100% honest.. at first it was intimidating mostly because of how tight knit Teethyz was, so I felt unsure and a bit shy I suppose, haha, but after few days I got to meet plenty of friendly and supportive people. I plan on improving my communication skills to hopefully make more friends at the dentist. 😄
+Last but not least, Alliance of the Month! 
+
+Interviewer: SiimplyBunnwy
+
+Interviewee: Hokui PR
+
+*What has working with Teethyz been like form an affiliate perspective?*
+
+Working with Teethyz over these past few months has been an incredible experience! We're very thankful for what the partnership has brought us and we hope to be able to collaborate on some exciting events for both communities to enjoy for the upcoming months. Their relations team has shown a lot of commitment and ensured stable communication within both groups despite not having the chance to collaborate yet. Overall, Hokui's relations team is very happy to be affiliated with Teethyz and we're very excited to see what this partnership has in store for us in the future.
+
+*What advice would you share with people who would like to get into PR in the future?*
+
+If you wish to become a Public Relations member in the future, I'd definitely say that it's important to be dedicated to the group, but to also find balance. Don't overwork yourself and demotivate yourself, you should enjoy working up. I promise that you'll enjoy your position more if you find balance and that your time will come. Moreover, It's important to be very communicative with your peers as it will be an essential skill once you do join the department, especially when it come to planning events and talking to alliances.
+
+*What is your favourite memory as a PR member with Teethyz?*
+
+I just recently joined the Hokui relations team so there isn't much yet, but from my knowledge our team enjoys the check-ins that Teethyz does. But one of our greatest memories was most likely the start of our partnership as we knew it would lead to great things for both groups, and we're very excited to collaborate on future events with Teethyz.
 
  — *Section written by: SiimplyBunnwy*
-
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -318,6 +437,48 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+₊ ⊹ Hey, Teethyz community! During the month of October we have had a lot of memories made by our Management Team and amazing community. Our photography team put them all into different collages! We hope you enjoyed this month and you will like the pictures. Now is the time to check it out, maybe you can find yourself between one!
+
+**・❥・.ᐟ  Shift Photo's**
+
+Let‘s start with some of our amazing shift photos! This month we‘ve had so much wonderful shifts together and we were able to collect some special moments by putting them into a collage. Can you recognize yourself in any of these photos?
+
+![October Shift Collage](https://github.com/user-attachments/assets/4d2c8cd9-bf3c-41fd-9103-fbb62fa31233)
+
+
+**・❥・.ᐟTraining Photo's**
+ 
+As you may know, our management team enjoys taking photos after every session, so we've assembled a collage for you all to enjoy! Can you spot anyone you know? 
+
+![October Training Collage](https://github.com/user-attachments/assets/58d51a46-fee8-456c-a980-912edccdc963)
+
+**・❥・.ᐟ Alliance Photo's**
+
+The management team have visited some amazing alliances this month, along with our awesome alliances visiting us at Teethyz! We are all so grateful for our alliances and the diversity of different games that we are able to visit and learn about! Enjoy the collage made by the photography team with some of our best alliance photos!
+
+![October Alliance Collage](https://github.com/user-attachments/assets/ff49eca3-12a0-4726-b2bc-d92c7125aef4)
+
+**・❥・.ᐟ Funny Photo's**
+
+As always, laughter and fun moments are never missing from our memories. Here’s a collage of the funniest moments, we hope you have a great laugh!
+
+![October Funny Collage](https://github.com/user-attachments/assets/74192b5c-1838-4ec3-a4b0-67972f4e2fc8)
+
+**・❥・.ᐟ 8 Years Photo's**
+
+This month, we celebrated our 8th anniversary! We had a lot of fun at the dentist, and Dany later teleported us to v2. Enjoy this collage and thank you so much for playing the game! 
+
+![8 Years Photos Collage](https://github.com/user-attachments/assets/930a92c2-afab-47ba-baf1-bf3df7b070ce)
+
+
+**・❥・.ᐟ  Halloween Photo's**
+
+Special for this month, the photography team is bringing back the old tradition of counting down till halloween! We brought our mrs with us, here are the 10 pictures countding down till halloween, may you all have a spooky halloween!
+
+![October Halloween Photos Collage](https://github.com/user-attachments/assets/6f5f771f-22da-4a9c-939f-6066f5f018f1)
+
+ღ｡.｡That's all for this month's memories section! From behalf of the photography team, we hope you all loved taking a look at all the memories we collected during **October**, from 8 Year Anniversary to some training and alliance photos! See you next time!
 
 *Section written by: Photography team*
 
