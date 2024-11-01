@@ -487,7 +487,7 @@ Special for this month, the photography team is bringing back the old tradition 
 
 ღ｡.｡That's all for this month's memories section! From behalf of the photography team, we hope you all loved taking a look at all the memories we collected during **October**, from 8 Year Anniversary to some training and alliance photos! See you next time!
 
-*Section written by: Photography team*
+- *Section written by: Photography team*
 
 ► Thank you for reading our **October** Newsletter! See you all next month.
 
