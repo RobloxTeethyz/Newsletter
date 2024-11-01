@@ -1,4 +1,4 @@
-![October Header](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
+![October Header](https://github.com/user-attachments/assets/59a6afac-c727-402c-9d0c-6dd657809852)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -222,7 +222,7 @@ I’m doing a group costume with 4 of my friends! We’re dressing up like the T
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October Awareness](https://github.com/user-attachments/assets/557671eb-8783-40fb-bc0d-d4c6674e8b18)
+![October Awareness 2024](https://github.com/user-attachments/assets/557671eb-8783-40fb-bc0d-d4c6674e8b18)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -252,7 +252,7 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October OTM/OTW](https://github.com/user-attachments/assets/185c3399-2717-4737-b0c6-6619fc8c73f7)
+![October OTM/OTW 2024](https://github.com/user-attachments/assets/185c3399-2717-4737-b0c6-6619fc8c73f7)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -264,13 +264,13 @@ Black Cat Day, celebrated on October 27, is dedicated to raising awareness about
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October Tiktok 2024](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
+![October Tiktok 2024](https://github.com/user-attachments/assets/fb354a82-bce7-470f-967e-531f825a0036)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October Birthdays](https://github.com/user-attachments/assets/cfaec8be-83ee-4e51-afaf-85446f657e4b)
+![October Birthdays 2024](https://github.com/user-attachments/assets/1b20f561-0dcd-4dcc-8680-62861d604ac6)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -314,7 +314,7 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![October Memories]()
+![October Memories 2024](https://github.com/user-attachments/assets/d64feda0-0371-4f45-b307-9daa6b82508d)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
