@@ -389,7 +389,7 @@ I just recently joined the Hokui relations team so there isn't much yet, but fro
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-https://github.com/user-attachments/assets/539444c6-5311-4bc1-8319-2653003dc858
+![October Tiktok 2024](https://github.com/user-attachments/assets/539444c6-5311-4bc1-8319-2653003dc858)
 
 — *Section made by: 17thwish*
 
