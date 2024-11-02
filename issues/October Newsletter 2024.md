@@ -403,37 +403,39 @@ I just recently joined the Hokui relations team so there isn't much yet, but fro
 
 This month we have been celebrating multiple MR+ birthdays! Below is how they celebrated their birthdays!
 
-⋆✴︎˚｡⋆  OceanAvny: It was my 18th birthday so I went out with my friends! I saw some of my family and had a small gathering too. Later, I got surprised with a trip to Vegas. I went with my friends and my cousin, we stayed there for a week and I had sooo much fun! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ OceanAvny: It was my 18th birthday so I went out with my friends! I saw some of my family and had a small gathering too. Later, I got surprised with a trip to Vegas. I went with my friends and my cousin, we stayed there for a week and I had sooo much fun! 𐙚 ‧₊˚
 
 ![OceanAvny](https://github.com/user-attachments/assets/47510287-7f88-4278-a6ea-af2614b5c2a6)
 
-⋆✴︎˚｡⋆  17thwish: for my birthday, i celebrated after school with my friends at starbucks and went out to the river and hung out there! after going to the river we went back home where there was cake and other food that we ate and then everyone went home. the next day my parents celebrated with me by giving gifts and going out to eat somewhere that i wanted too! it was a great day and i wouldn’t trade it for anything!!! ❤️ 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ 17thwish: for my birthday, i celebrated after school with my friends at starbucks and went out to the river and hung out there! after going to the river we went back home where there was cake and other food that we ate and then everyone went home. the next day my parents celebrated with me by giving gifts and going out to eat somewhere that i wanted too! it was a great day and i wouldn’t trade it for anything!!! ❤️ 𐙚 ‧₊˚
 
 ![17thwish](https://github.com/user-attachments/assets/9100b00a-7837-480f-a540-b79a95b19950)
 
-⋆✴︎˚｡⋆  Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ Linatheunicorn: I celebrated my birthday with a few of my close friends and family. We went to a new outdoor place and had lunch together. Then, we went home, ate the cake, and opened the presents. It was a beautiful birthday! 𐙚 ‧₊˚
 
 ![Linatheunicorn](https://github.com/user-attachments/assets/c36ab637-3010-4867-a296-f58ebe42a4d9)
 
-⋆✴︎˚｡⋆  July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ July_IsAMonth: i went out for dinner and hang out with my friends for the rest of the night! 𐙚 ‧₊˚
 
 ![July_IsAMonth](https://github.com/user-attachments/assets/56189a24-3ab2-4a19-82f1-70c4c3a75d3b)
 
-⋆✴︎˚｡⋆  iamjan12312: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ iamjan12312: For my birthday, I went out with my friend until 5am in the morning. We won't say why but it was amazing to turn 21! I had cake once I got home and Laura, Luke and Harv made the cutest server for me which was a nice way to go into my 21st at 12am.🎂 𐙚 ‧₊˚
 
 ![iamjan12312](https://github.com/user-attachments/assets/8b417d7a-7b17-4678-97ba-4b6d55cbc541)
 
-⋆✴︎˚｡⋆  Vinnielittle14: Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ Vinnielittle14: Well I had a party with family and another party with some friends! Had some delicious cake. 𐙚 ‧₊˚
 
 ![Vinnielittle14](https://github.com/user-attachments/assets/8fa4a165-f8d9-4289-907f-95eb51d485d6)
 
-⋆✴︎˚｡⋆  mwaxaurora: I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ mwaxaurora: I’m going to dinner and shopping with my friends! 𐙚 ‧₊˚
 
 ![mwaxaurora](https://github.com/user-attachments/assets/26ce49a6-dc31-4b6c-a3fe-8d01ce8c3013)
 
 ⋆✴︎˚｡⋆ Witty20007 𐙚 ‧₊˚
 
 ![Witty20007](https://github.com/user-attachments/assets/0274b9b8-3c2b-4826-9e7b-1a26caf0d587)
+
+⋆✴︎˚｡⋆ dxmvix: I didn't do alot!! Some of my family came though which was really fun! I did go shopping the next day as that wasn't possible on my birthday!! c:
 
 — *Section written by: eviegracea & Tradewinds2810*
 
@@ -452,7 +454,6 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 Let‘s start with some of our amazing shift photos! This month we‘ve had so much wonderful shifts together and we were able to collect some special moments by putting them into a collage. Can you recognize yourself in any of these photos?
 
 ![October Shift Collage](https://github.com/user-attachments/assets/4d2c8cd9-bf3c-41fd-9103-fbb62fa31233)
-
 
 **・❥・.ᐟTraining Photo's**
  
@@ -478,7 +479,6 @@ This month, we celebrated our 8th anniversary! We had a lot of fun at the dentis
 
 ![8 Years Photos Collage](https://github.com/user-attachments/assets/930a92c2-afab-47ba-baf1-bf3df7b070ce)
 
-
 **・❥・.ᐟ  Halloween Photo's**
 
 Special for this month, the photography team is bringing back the old tradition of counting down till halloween! We brought our mrs with us, here are the 10 pictures countding down till halloween, may you all have a spooky halloween!
@@ -487,7 +487,7 @@ Special for this month, the photography team is bringing back the old tradition 
 
 ღ｡.｡That's all for this month's memories section! From behalf of the photography team, we hope you all loved taking a look at all the memories we collected during **October**, from 8 Year Anniversary to some training and alliance photos! See you next time!
 
-- *Section written by: Photography team*
+*- Section written by: Photography team*
 
 ► Thank you for reading our **October** Newsletter! See you all next month.
 
