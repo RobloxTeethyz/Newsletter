@@ -143,7 +143,7 @@ I hope you enjoyed reading this section, as much as I enjoyed creating it! Pleas
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Awareness 2024](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
+![November Awareness 2024](https://github.com/user-attachments/assets/bf0a1f9c-2937-41b0-8a6e-4922cfb1f2b6)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -387,6 +387,8 @@ Funny collage
 That officially concludes our amazing memory section! We hope you enjoyed looking at these special moments as much as we loved capturing them! We're super excited to bring you even more wonderful memories next time!
 
 ╰ *Section written by: Photography Team*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 ► Thank you for reading our **November** Newsletter! See you all next month.
 
