@@ -20,8 +20,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Thanksgiving Traditions](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
-
+![Thanksgiving Traditions](https://github.com/user-attachments/assets/818ab82e-79d8-4ea4-835b-7662a0cfb96b)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -52,7 +51,7 @@ In November, many families have their own traditions within their household. But
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Christmas Wishlist Ideas](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
+![Christmas Wishlist Ideas](https://github.com/user-attachments/assets/48ccf88b-9140-4173-bd3d-01b55864286d)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -320,6 +319,46 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+*New Staff Assistants*
+
+- twilightdreamzx
+ 
+- Limonaka_Youtube
+ 
+- stargvrlavie
+
+- lvauraas
+ 
+- iinthestarrs
+
+- s7icy
+ 
+- macedonicvsbsf
+
+- lvc1qa
+
+*New Supervisors*
+
+- Bobbybaubles
+ 
+- snwflvkes
+
+- Everest_GamerGirl
+
+- baconglowz
+ 
+- fashionhrts
+
+*New Assistant Managers*
+
+- Lietogzirls
+
+*New Office Managers*
+
+- ribbvnns
+
+- vcrsity
+
 ╰ *Section written by: SiimplyBunnwy & swtcakey*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -334,11 +373,11 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆ iikqtieee - (November 2nd) : For my 16th birthday, I celebrated by going in town with a few of my close friends! I also had a few of my family members come and celebrate! 𐙚 ‧₊˚
 
-⋆✴︎˚｡⋆  dev_chloe - (November 10th) : I went to the mall to have my second ear piercing! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ dev_chloe - (November 10th) : I went to the mall to have my second ear piercing! 𐙚 ‧₊˚
 
 ⋆✴︎˚｡⋆ iiSvnny_OfficalYT - (November 21st) : For my birthday I’m going to be spending a lot of time with my mum as I get a day off school and rarely get to see her anymore due to her working. We are going to Greg’s to get a mint hot chocolate (we go there every year together for my birthday). Unfortunately for me, I’ve got to spend at least an hour revising for GCSE exams.💪 My extended family is also coming over to celebrate with cake. And finally, I will be playing a ton of games and watching movies on my new PC with close friends. 𐙚 ‧₊˚
 
-⋆✴︎˚｡⋆  lvauraas - (November 23rd) : I’m spending the whole weekend with my friends and family! So on the Friday I’m going out to eat then going out, then on the Saturday (my actual birthday) I’m teaching dance in the morning then going to a brunch and meal with some family, then on the Sunday I’m out with some of my dance friends!! 𐙚 ‧₊˚
+⋆✴︎˚｡⋆ lvauraas - (November 23rd) : I’m spending the whole weekend with my friends and family! So on the Friday I’m going out to eat then going out, then on the Saturday (my actual birthday) I’m teaching dance in the morning then going to a brunch and meal with some family, then on the Sunday I’m out with some of my dance friends!! 𐙚 ‧₊˚
 
 ![lvauraas](https://github.com/user-attachments/assets/00578c7e-2214-4319-bec3-188fe8a2e5d5)
 
