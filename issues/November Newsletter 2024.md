@@ -137,6 +137,15 @@ I hope you enjoyed reading this section, as much as I enjoyed creating it! Pleas
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Hello Teethyz community! Today, the newsletter team has prepared a few cute outfit choices for you this December. We can 100% guarantee these will keep you stylish and warm, even during the coldest winter days.
+
+![1st Outfit](https://github.com/user-attachments/assets/951956b7-ffce-4a99-bd2d-d813ffea4e2b)
+![2nd Outfit](https://github.com/user-attachments/assets/38ffa055-ad48-471e-ba86-c73db60cb214)
+![3rd Outfit](https://github.com/user-attachments/assets/822fc4bf-ea54-4447-b99b-6e67711c7750)
+![4th Outfit](https://github.com/user-attachments/assets/b7308db7-83f0-4cb3-86ab-8435bc9d1e61)
+
+We hope you all enjoyed this section of the November newsletter! Feel free to take inspiration from the images above or create your own avatar with our merch/scrubs. Have fun reading the rest of the Newsletter!
+
 ╰ *Section written by: lvsvnnyy & frnkoceaan*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
