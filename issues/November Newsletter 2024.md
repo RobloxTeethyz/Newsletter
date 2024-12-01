@@ -381,7 +381,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Birthdays 2024](https://github.com/user-attachments/assets/1b20f561-0dcd-4dcc-8680-62861d604ac6)
+![November Birthdays 2024](https://github.com/user-attachments/assets/429d5da8-3dc9-48bf-bd07-eac947e234ed)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
