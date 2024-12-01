@@ -1,4 +1,4 @@
-![November Header](https://github.com/user-attachments/assets/59a6afac-c727-402c-9d0c-6dd657809852)
+![November Header](https://github.com/user-attachments/assets/d1f6c721-8920-47ca-b2d5-7c198a58fa26)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -14,6 +14,14 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hey Teethyz community! Today, I’ve prepared a perfectly spooky comic to get the last of our Halloween spirit out now that Christmas is almost here. I hope you enjoy!
+
+————————————————————————————
+
+![November Comic](https://github.com/user-attachments/assets/b162aee8-c0d2-49a1-b94e-f8d086f62a28)
+
+That concludes the November comic strip! I hope you enjoyed it! Pretty scary, right?
 
 ╰ *Section written by: lvsvnnyy*
 
@@ -390,11 +398,15 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆ iiSvnny_OfficalYT - (November 21st) : For my birthday I’m going to be spending a lot of time with my mum as I get a day off school and rarely get to see her anymore due to her working. We are going to Greg’s to get a mint hot chocolate (we go there every year together for my birthday). Unfortunately for me, I’ve got to spend at least an hour revising for GCSE exams.💪 My extended family is also coming over to celebrate with cake. And finally, I will be playing a ton of games and watching movies on my new PC with close friends. 𐙚 ‧₊˚
 
+![iiSvnny_OfficalYT](https://github.com/user-attachments/assets/eab640e1-4598-4d69-9722-b6b45fb13af5)
+
 ⋆✴︎˚｡⋆ lvauraas - (November 23rd) : I’m spending the whole weekend with my friends and family! So on the Friday I’m going out to eat then going out, then on the Saturday (my actual birthday) I’m teaching dance in the morning then going to a brunch and meal with some family, then on the Sunday I’m out with some of my dance friends!! 𐙚 ‧₊˚
 
 ![lvauraas](https://github.com/user-attachments/assets/f76437a1-b29b-4c3f-8b61-58cc0d05c8da)
 
 ⋆✴︎˚｡⋆ RBLXWithEmily - (November 28th) : When I celebrate my birthday, I usually go shopping with my family and friends and eat Korean BBQ. 𐙚 ‧₊˚
+
+![RBLXWithEmily](https://github.com/user-attachments/assets/1b4a75de-706d-4a4e-b457-80426bf5a052)
 
 ╰ *Section written by: eviegracea and cbvopppl*
 
@@ -452,7 +464,7 @@ Newsletter Board: PerfectlyAnnie, vaemmlaqx, mckcnzies, & witty20007
 
 Site Provider/Advisor: Jyrezo
 
-Graphics: michallol7, Synceps, & vcrsity
+Graphics: michallol7, lvsvnnyy, Synceps, & vcrsity
 
 Section Authors: vcorria, steveygamer2, 1stIovee, mariesluvqs, svphiees, lvsvnnyy, avvieqs, svncereiy, Everest_GamerGirl & frnkoceaan
 
