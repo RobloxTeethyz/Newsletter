@@ -373,17 +373,17 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 
 ⋆✴︎˚｡⋆ iikqtieee - (November 2nd) : For my 16th birthday, I celebrated by going in town with a few of my close friends! I also had a few of my family members come and celebrate! 𐙚 ‧₊˚
 
-![iikqtiee](https://github.com/user-attachments/assets/72b5712c-48a4-455e-a523-d1d29717d8d1)
+![iikqtiee](https://github.com/user-attachments/assets/740038af-738b-43ba-821a-5f1f08da064e)
 
 ⋆✴︎˚｡⋆ dev_chloe - (November 10th) : I went to the mall to have my second ear piercing! 𐙚 ‧₊˚
 
-![dev_chloe](https://github.com/user-attachments/assets/906bf388-11b7-42d0-9b5e-020f4f16bc1b)
+![dev_chloe](https://github.com/user-attachments/assets/eb5a2f0e-332f-428f-82e4-4950a8839f79)
 
 ⋆✴︎˚｡⋆ iiSvnny_OfficalYT - (November 21st) : For my birthday I’m going to be spending a lot of time with my mum as I get a day off school and rarely get to see her anymore due to her working. We are going to Greg’s to get a mint hot chocolate (we go there every year together for my birthday). Unfortunately for me, I’ve got to spend at least an hour revising for GCSE exams.💪 My extended family is also coming over to celebrate with cake. And finally, I will be playing a ton of games and watching movies on my new PC with close friends. 𐙚 ‧₊˚
 
 ⋆✴︎˚｡⋆ lvauraas - (November 23rd) : I’m spending the whole weekend with my friends and family! So on the Friday I’m going out to eat then going out, then on the Saturday (my actual birthday) I’m teaching dance in the morning then going to a brunch and meal with some family, then on the Sunday I’m out with some of my dance friends!! 𐙚 ‧₊˚
 
-![lvauraas](https://github.com/user-attachments/assets/00578c7e-2214-4319-bec3-188fe8a2e5d5)
+![lvauraas](https://github.com/user-attachments/assets/f76437a1-b29b-4c3f-8b61-58cc0d05c8da)
 
 ⋆✴︎˚｡⋆ RBLXWithEmily - (November 28th) : When I celebrate my birthday, I usually go shopping with my family and friends and eat Korean BBQ. 𐙚 ‧₊˚
 
