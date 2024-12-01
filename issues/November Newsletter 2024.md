@@ -3,7 +3,7 @@
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Hello, everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover up mostly everything that occured during **Novmber**! We hope you enjoy reading this month's newsletter!
+Hello, everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover up mostly everything that occured during **November**! We hope you enjoy reading this month's newsletter!
 
 - Newsletter Team
 
