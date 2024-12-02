@@ -195,7 +195,7 @@ Because of this, King James of England made it an annual British celebration eac
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 .  𓏲 Greetings, Teethyz community! We’re excited to share our interviews with the November Management and Alliance of the Month, as well as the LRs of the Week. Check out their responses to our questions below; we hope you enjoy reading!
-︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵﹒︵ ﹒︵
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
 
 **. ੭  🧸  LROTW Interviews**
 
@@ -256,7 +256,7 @@ Interviewee: amicadiFYA
 
 - A3: Yes my goal that I would like to achieve in the future is to try to become a MR even if I failed the MI I want to try again one more time and I am sure that I will make it and my time will come one day!
 
-︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵﹒︵
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
 
 **. ੭  🤍 MROTM Interview**
 
@@ -278,7 +278,7 @@ Q3: Do you have any goals for your future journey as a MR?
 
 Thank you so much for MROTM!! 💕💕💕
 
-︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵﹒︵
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
 
 **. ੭  🍪 HROTM Interview**
 
@@ -298,7 +298,7 @@ Q3:  What has been the best part of your Teethyz journey so far?
 
 - A3: It’s probably now! I’ve made so many great friends and I just feel so integrated into the community. There’s so many amazing people here and although there may be low points I’ve persevered and I couldn’t have made it this far without my friends.
 
-︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵﹒︵
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
 
 **. ੭  🌸 AOTM Interview**
 
@@ -322,7 +322,7 @@ Q4: What is your favorite memory during your time in PR?
 
 - A4: My favorite memory of working in the PR industry was getting my first HR role, which I worked in for over three years.
 
-︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵﹒︵ ﹒︵
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
 
 Thank you so much for reading the OTM & LROTW section of our newsletter! We hope you enjoyed. 🤍
 
@@ -336,7 +336,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-*New Staff Assistants*
+*New Staff Assistants:*
 
 - twilightdreamzx
  
@@ -354,7 +354,9 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 - lvc1qa
 
-*New Supervisors*
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+*New Supervisors:*
 
 - Bobbybaubles
  
@@ -366,11 +368,15 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
  
 - fashionhrts
 
-*New Assistant Managers*
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+*New Assistant Managers:*
 
 - Lietogzirls
 
-*New Office Managers*
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+*New Office Managers:*
 
 - ribbvnns
 
