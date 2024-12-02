@@ -336,6 +336,46 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+╰ ﹒ Greetings, everyone! For this months newsletter, myself and Eleanor have gathered a few MRs+ who were promoted this month, followed by a list of all the amazing promotions that have happened this month! 
+
+**Interviews!**
+
+*Question ~ What was your reaction to being promoted?*
+
+・❥・ lvauraas: Promoted to Staff Assistant!
+
+- So I was sat in a restaurant with my family and then Lily pinged me and was talking about role colours, and I was saying I liked the white former colour we had and she basically replied to me and said “well i don’t think you’ll be having the former role again for a while!!!! but its okay cos the light purple will suit u.” My first response was “you what?” then it clicked and I couldn’t stop smiling and I was so happy to be back on the team!
+
+・❥・ Bluewater_446: Promoted to Staff Assistant!
+
+- “I was super excited and thankful when I got Staff Assistant, it was definitely a big step and it gave me a real sense of accomplishment. I was grateful that my hard work was being recognized, and I was especially excited to be apart of the management team.”
+
+・❥・ Limonaka_Youtube: Promoted to Staff Assistant!
+
+- “I was very happy! Leah told me to change my outfit, I changed my outfit and rejoined... I see AND I HAVE A STAFF ASSISTANT! At first I thought it was a mistake! In summary I was EXCITED!”
+
+・❥・ bobbybaubles: Promoted to Supervisor!
+
+- “I was so shocked and happy, I was screaming into my monitor!”
+
+・❥・ Everest_GamerGirl: Promoted to Supervisor!
+
+- “It was actually unreal, I was promoted by Sunny in game after Amelia’s shift, it really took me by surprise. When it happened I just got back from hiding as all of the Staff Assistants were asked to hide! I looked away for a split second because I was multi tasking and I saw my name across the screen, shortly after I was bombarded with congratulations and support from everyone in the server! All of the people that was there were beyond sweet, I was genuinely freaking out, and as soon as it happened I immediately got on VC with sophie! I was beyond thrilled during the promo and I am so grateful to Sunny, afterwards I’m not ashamed to admit I changed almost everything including for my sv era! I seriously can’t say enough how grateful I am to sunny, so once again thank you sunny ILY!”
+
+・❥・ fashionhrts: Promoted to Supervisor!
+
+- “I was really excited but mostly surprised, I was asleep when it happened and woke up checking my discord and got surprised. It was really exciting and I’m super super grateful for the role!
+
+・❥・ lietogzirls: Promoted to Assistant Manager!
+
+- “i was sitting in the car on my way to my favorite italian restaurant and i was messaging my friend when all of a sudden I see leah say that I was promoted to assistant manager!! i suddenly started getting lots and lots of pings and i was smiling a lot in real life! my parents even asked why i was smiling! but i am so happy this happened!”
+
+・❥・ vcrsity: Promoted to Office Manager!
+
+- “I was just chilling listening to music whilst talking to my friends, and then I had found out that I was promoted to office manager and I just froze. I was so so so excited and happy for myself since I had managed to make it this far. I was shaking with excitement for about 2 hours and still right now I can not believe that im an office manager.”
+
+**╭˚ Overall Promotions**
+
 *New Staff Assistants:*
 
 - twilightdreamzx
