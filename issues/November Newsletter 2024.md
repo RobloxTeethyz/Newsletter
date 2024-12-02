@@ -374,6 +374,8 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 
 - “I was just chilling listening to music whilst talking to my friends, and then I had found out that I was promoted to office manager and I just froze. I was so so so excited and happy for myself since I had managed to make it this far. I was shaking with excitement for about 2 hours and still right now I can not believe that im an office manager.”
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
 **╭˚ Overall Promotions**
 
 *New Staff Assistants:*
@@ -459,7 +461,7 @@ This month we have been celebrating multiple MR+ birthdays! Below is how they ce
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Memories 2024](https://github.com/user-attachments/assets/d64feda0-0371-4f45-b307-9daa6b82508d)
+![November Memories 2024](https://github.com/user-attachments/assets/daaa8085-5a33-4d4a-9a33-6b8f1de0f67f)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
