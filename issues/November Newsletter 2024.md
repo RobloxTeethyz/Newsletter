@@ -189,7 +189,7 @@ Because of this, King James of England made it an annual British celebration eac
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November OTM/OTW 2024](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
+![November OTM/OTW 2024](https://github.com/user-attachments/assets/f1392804-e314-4826-a1b6-5736985f7957)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -381,7 +381,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Birthdays 2024](https://github.com/user-attachments/assets/429d5da8-3dc9-48bf-bd07-eac947e234ed)
+![November Birthdays 2024](https://github.com/user-attachments/assets/ba71397d-6e93-442d-a4a6-3c4149e82601)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
