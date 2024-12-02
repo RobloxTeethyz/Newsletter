@@ -10,7 +10,7 @@ Hello, everyone! Welcome back to our monthly newsletter. Everything in this news
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Themed Memes/Comics](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
+![November Themed Memes/Comics](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -140,7 +140,7 @@ I hope you enjoyed reading this section, as much as I enjoyed creating it! Pleas
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Avatar Ideas](https://github.com/user-attachments/assets/a1580227-f0d3-41ed-8300-f69317c51c11)
+![Avatar Ideas](https://github.com/user-attachments/assets/4439d4cd-e35c-4df9-9bd6-012d615ac2fd)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -159,7 +159,7 @@ We hope you all enjoyed this section of the November newsletter! Feel free to ta
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Awareness 2024](https://github.com/user-attachments/assets/bf0a1f9c-2937-41b0-8a6e-4922cfb1f2b6)
+![November Awareness 2024](https://github.com/user-attachments/assets/8fdee7c4-d6fa-48b1-ab38-babe3c63ccb8)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -331,7 +331,7 @@ Thank you so much for reading the OTM & LROTW section of our newsletter! We hope
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![November Promotions 2024](https://github.com/user-attachments/assets/fb354a82-bce7-470f-967e-531f825a0036)
+![November Promotions 2024](https://github.com/user-attachments/assets/d9419f27-0365-4b3e-9df3-2fcbd314446b)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
