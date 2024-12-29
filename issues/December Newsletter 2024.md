@@ -62,80 +62,88 @@ These fudge squares are sure to fill your sweet tooth! They are extremely easy t
 Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhqze)** interviewed a few people about their Christmas traditions. Now we want to hear from you! What are your Christmas traditions? Feel free to ping us in a chat if you'd like to share. Without further ado, let’s dive into the interviews!
 
 
-                                               •˙˚∘ Interviewer: flowersandrainbowzz
-                                                     Interviewee: oceavnz 
+  *•˙˚∘ Interviewer: flowersandrainbowzz*
+
+  *Interviewee: oceavnz*
 
 
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: We started to stay home more, kinda just have fun and not really do much. Just play games and stuff.
+  - ʚ Answer: We started to stay home more, kinda just have fun and not really do much. Just play games and stuff.
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: Every Christmas we eat dinner and do some activities, and some family comes to see us.
+  - ʚ Answer: Every Christmas we eat dinner and do some activities, and some family comes to see us.
 
 
-                                               •˙˚∘ Interviewer: lvnderhqze
-                                                     Interviewee: tomxqv
+   *•˙˚∘ Interviewer: lvnderhqze*
+
+   *Interviewee: tomxqv*
 
 
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: Well, we all used to go on vacation together but during and from COVID, we haven't really been able to since.
+  - ʚ Answer: Well, we all used to go on vacation together but during and from COVID, we haven't really been able to since.
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: We go to my dad's sister's house after Christmas dinner to celebrate with a party. We usually unintentionally sleep over until the next morning and it's really fun since I'm with my cousins.
+  - ʚ Answer: We go to my dad's sister's house after Christmas dinner to celebrate with a party. We usually unintentionally sleep over until the next morning and it's really fun since I'm with my cousins.
 
 
-                                               •˙˚∘ Interviewer: flowersandrainbowzz
-                                                     Interviewee: laufcyy
+    *•˙˚∘ Interviewer: flowersandrainbowzz*
+  
+    *Interviewee: laufcyy*
 
 ‌‌
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: I used to spend Christmas at my father's apartment since he made really good food, and we didn't want him to miss out on it, but that unfortunately stopped since he has been busy with work. Something that definitely changed is our family, since it has grown more, and we usually try to spend time with our friends too if it's possible, which changes every year.
+  - ʚ Answer: I used to spend Christmas at my father's apartment since he made really good food, and we didn't want him to miss out on it, but that unfortunately stopped since he has been busy with work. Something that definitely changed is our family, since it has grown more, and we usually try to spend time with our friends too if it's possible, which changes every year.
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: On Christmas Eve, we start with dinner, then snacks and a film. On Christmas, we decorate the Christmas tree more and usually go somewhere fun. When we come back, we make DIY ornaments as a gift to an anonymous person, which ends up with drama most of the time, but that makes it more fun in my opinion.
+  - ʚ Answer: On Christmas Eve, we start with dinner, then snacks and a film. On Christmas, we decorate the Christmas tree more and usually go somewhere fun. When we come back, we make DIY ornaments as a gift to an anonymous person, which ends up with drama most of the time, but that makes it more fun in my opinion.
 
 
-                                               •˙˚∘ Interviewer: lvnderhqze
-                                                     Interviewee: lvauraas
+    *•˙˚∘ Interviewer: lvnderhqze*
+  
+    *Interviewee: lvauraas*
 
 
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: It hasn’t really changed, we have developed some traditions which we’ve done annually since I was little, for example having a takeaway every Christmas Eve!
+  - ʚ Answer: It hasn’t really changed, we have developed some traditions which we’ve done annually since I was little, for example having a takeaway every Christmas Eve!
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: Every Christmas we do our traditions, then on actual Christmas Day, our family will come round and we will have a Christmas dinner and play board games and then the following day my family goes to my auntie and uncles house and we have sort of a second Christmas Day! It’s lots of fun!
+  - ʚ Answer: Every Christmas we do our traditions, then on actual Christmas Day, our family will come round and we will have a Christmas dinner and play board games and then the following day my family goes to my auntie and uncles house and we have sort of a second Christmas Day! It’s lots of fun!
 
 
-                                               •˙˚∘ Interviewer: flowersandrainbowzz
-                                                     Interviewee: vawerwii
+    *•˙˚∘ Interviewer: flowersandrainbowzz*
+
+    *Interviewee: vawerwii*
+
 
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: My family used to watch Christmas lighting ceremonies, and now we do our own! We also have an aunt's baking contest for the dessert in Christmas dinner each year, a tradition my dad's side of the family has been partaking in since before I was born.
+  - ʚ Answer: My family used to watch Christmas lighting ceremonies, and now we do our own! We also have an aunt's baking contest for the dessert in Christmas dinner each year, a tradition my dad's side of the family has been partaking in since before I was born.
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: Every Christmas, we make chocolate chip cookies and peppermint bark for Santa. We also leave out carrots for the reindeer. After Christmas morning, we go over to my grandparents' house for dinner and host the dessert baking competition. We usually stay there for about 3 days with all of my cousins and it's awesome!
+  - ʚ Answer: Every Christmas, we make chocolate chip cookies and peppermint bark for Santa. We also leave out carrots for the reindeer. After Christmas morning, we go over to my grandparents' house for dinner and host the dessert baking competition. We usually stay there for about 3 days with all of my cousins and it's awesome!
 
 
-                                               •˙˚∘ Interviewer: lvnderhqze
-                                                     Interviewee: evwrmores
+    *•˙˚∘ Interviewer: lvnderhqze*
+  
+    *Interviewee: evwrmores*
+
 
 ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
-- ʚ Answer: Our Christmases don’t change too much! Our family typically sticks to the same routine.
+  - ʚ Answer: Our Christmases don’t change too much! Our family typically sticks to the same routine.
 
 ʚ Question: What do you and your family do every Christmas?
 
-- ʚ Answer: For us, Christmas starts on Christmas Eve. Every Christmas Eve, we go to my aunt's house and all of the cousins get matching pjs. The next morning we open presents with our family (parents and sister) before everyone else comes over to our house! Christmas is always a big event for our family and a great way for us all to bond.
+  - ʚ Answer: For us, Christmas starts on Christmas Eve. Every Christmas Eve, we go to my aunt's house and all of the cousins get matching pjs. The next morning we open presents with our family (parents and sister) before everyone else comes over to our house! Christmas is always a big event for our family and a great way for us all to bond.
 
 
 This concludes the Christmas Tradition Interviews! We hope you enjoyed reading them as much as we enjoyed putting them together. Be sure to check out the other newsletters too, as our team worked hard on each one. We look forward to seeing you in 2025 — Happy New Year and see you in January!
