@@ -67,7 +67,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: oceavnz*
 
 
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: We started to stay home more, kinda just have fun and not really do much. Just play games and stuff.
 
@@ -81,7 +81,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: tomxqv*
 
 
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: Well, we all used to go on vacation together but during and from COVID, we haven't really been able to since.
 
@@ -95,7 +95,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: laufcyy*
 
 ‌‌
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: I used to spend Christmas at my father's apartment since he made really good food, and we didn't want him to miss out on it, but that unfortunately stopped since he has been busy with work. Something that definitely changed is our family, since it has grown more, and we usually try to spend time with our friends too if it's possible, which changes every year.
 
@@ -109,7 +109,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: lvauraas*
 
 
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: It hasn’t really changed, we have developed some traditions which we’ve done annually since I was little, for example having a takeaway every Christmas Eve!
 
@@ -123,7 +123,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: vawerwii*
 
 
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: My family used to watch Christmas lighting ceremonies, and now we do our own! We also have an aunt's baking contest for the dessert in Christmas dinner each year, a tradition my dad's side of the family has been partaking in since before I was born.
 
@@ -137,7 +137,7 @@ Heyhey! In this section, **Isabella (flowersandrainbowzz)** and **Emma (lvnderhq
 *Interviewee: evwrmores*
 
 
- ʚ Question: How has your family's way of celebrating Christmas changed over the years?
+  ʚ Question: How has your family's way of celebrating Christmas changed over the years?
 
   - ʚ Answer: Our Christmases don’t change too much! Our family typically sticks to the same routine.
 
