@@ -1,16 +1,16 @@
-![December Header](https://github.com/user-attachments/assets/d1f6c721-8920-47ca-b2d5-7c198a58fa26)
+![December Header](https://github.com/user-attachments/assets/03b1f7d9-93ca-4374-9534-7d48eea8b982)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Hello, everyone! Welcome back to our monthly newsletter. It's officially our last newsletter of 2024, what a year ikt has been for Teethyz. Everything in this newsletter will cover up mostly everything that occured during **December**! There are some additional sections only for this month's newsletter! We hope you enjoy reading our last 2024 newsletter! :D
+Hello, everyone! Welcome back to our monthly newsletter. It's officially our last newsletter of 2024, what a year it has been for Teethyz. Everything in this newsletter will cover up mostly everything that occured during **December**! There are some additional sections only for this month's newsletter! We hope you enjoy reading our last 2024 newsletter! :D
 
 - Newsletter Team
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Best December Recipes](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Best December Recipes](https://github.com/user-attachments/assets/baf8bbd0-8892-4197-a01c-a2de60bc5f2f)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -44,17 +44,65 @@ These fudge squares are sure to fill your sweet tooth! They are extremely easy t
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Teethyz Themed Christmas Story](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Teethyz Themed Christmas Story](https://github.com/user-attachments/assets/d8e2a11e-8dcf-4670-b8e5-63054ebfeb26)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hey Teethyz community! Today, I’ve written a perfectly merry story to bring us into the new year. I hope you enjoy!
+
+———————————————————————————————————————
+
+🌨️ The lull of the crisp, winter air delicately rushing past pine trees and houses gave the otherwise snowy expanse of a village an unfamiliar calm, especially during this time of year.
+
+Yet, despite this chilling weather, a dentist’s office sat right at the summit of a snow laden hill. To the village people, despite how out of place it felt, this very office was the heart of christmas cheer in this little village.
+
+Each and every year without fail, Dr. Nicholas decked this little building out with glimmering Christmas lights and a spectacle of decorations. The light these magical displays gave off couldn’t compare to how his christmas cheer lit up the village and made the season feel all the more cozier.
+
+On an especially wintry Christmas, though, the village was hit by a frenzied blizzard. When it became almost too dangerous to step outside, it just so happened that Dr. Nicholas was hosting his annual Christmas party.
+
+Everybody sat by the door, dumbfounded by the chaos. Their bundled up snowmen and Christmas lights had all been torn apart, leaving the outside looking more like the cave of a monster.
+
+———————————————————————————————————————
+
+**🦷 “Okay, everybody, just stay calm. It’s gonna be fine, I’m sure it’ll pass in no time!”**
+
+Dr. Nicholas paced around his office, trying to bring some hope to this cheerful room turned bleak. Just as he finished his statement, the centerpiece of the decor, a towering snowman inflatable, had an icicle pierce through its thin polyester exterior. As he turned around to look, it simply detached from the ground and sadly flew away. It wasn’t the beacon of hope he was looking for, but he could spin this into something merry!
+
+**🤦‍♀️ “Nick, I love you, I really do, but this is crisis mode! We can’t just grin and hope for the best. There’s some serious considerations we need to make here.”**
+
+The clearly exasperated woman sat on a chair wrapped in green and red garland, placing her hands against her temples. Just as she looked back at Dr. Nicholas, he was standing in the center of the room holding a bucket of candy canes, grinning sheepishly. The littler ones ran up to him, giggling and taking their fair share entirely oblivious of the chaos happening around them. The adults, on the other hand, simply sat there taking in the situation.
+
+**🦷 “It’s fine! It’s— we’re all fine. We don’t need to think about it. Can’t we just be a little merry for now? We still have to bob for apples! Finish up the snowball corn hole competition! Oh, and what about the elf hunt?! We CANNOT forget-”**
+
+His sentence was abruptly cut off by a teenage girl, known for her hand-crocheted stockings, chiming in with an idea.
+
+**☃️ “Nobody’s saying we can’t do that stuff in here.. where it’s safe. Maybe we don’t have everything we need, but we can improvise.”**
+
+Standing up, she’d walk over to the bucket of complementary snowman shaped toothbrushes, picking one up and walking back over to address the panicked crowd.
+
+**☃️ “We don’t have the elves anymore.. the wind probably took them.. but we have these toothbrushes! They’re just as merry, I’m sure they’ll work.”**
+
+She’d pick up the rest of the toothbrushes and walked off to hide them. Dr. Nicholas reached a hand out to stop her, but had lost just enough hope in the situation to give up on this idea.
+
+**🦷 “I think that’s a great idea… don’t we all?”**
+
+He’d smile for a while, to the point where it got so awkward that the remaining people in the room just nodded in agreement. He’d walk off, the jingle bells on his sweater ringing and making it very clear where he was at any given moment.
+
+——————————————————————————————————————— 
+
+Together, the dentist and the girl teamed up to find a creative solution to all of their plans that were now buried in snow. Be it substituting snowballs for balls of gauze or switching out the apples for.. even more apples (How can a dentist be a dentist without apples?)
+
+After a while, everybody was smiling and chatting once again. A big crowd was gathered around the corn hole tournament, cheering and booing at every turn. Children ran around the building searching for toothbrushes. The atmosphere had gone from gloomy to cheerful, and all it took were some creative ideas and a few snowman toothbrushes.
+
+———————————————————————————————————————
 
 ╰ *Section written by: lvsvnnyy*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Christmas Tradition Interviews](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Christmas Tradition Interviews](https://github.com/user-attachments/assets/698b6b09-3c0f-4898-9c09-6404e8271bb0)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -153,7 +201,7 @@ This concludes the Christmas Tradition Interviews! We hope you enjoyed reading t
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Christmas Bingo](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Christmas Bingo](https://github.com/user-attachments/assets/b3141131-a462-4098-8175-00e8e6c48452)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -168,7 +216,7 @@ Greetings, Teethyz community! For this month’s newsletter, I made a Christmas 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Winter Break Activites](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Winter Break Activites](https://github.com/user-attachments/assets/a4116022-f1aa-4d4c-9208-139c2adaffc4)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -198,7 +246,7 @@ Greetings, Teethyz community! For this month’s newsletter, I made a Christmas 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Christmas Word Search](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Christmas Word Search](https://github.com/user-attachments/assets/99e8768e-d963-477d-9b65-da1448aa99af)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -213,17 +261,77 @@ Hey everyone! Hope you’re enjoying the newsletter so far, our next section is 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Christmas Gifts from Newsletter Team](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Christmas Gifts from Newsletter Team](https://github.com/user-attachments/assets/387e9389-7a99-4b85-bc96-ebe7b730b9af)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-╰ *Section written by: Section Authors Team*
+Hello! The Teethyz Newsletter team is thrilled to bring you a special section dedicated to sharing love from the Newsletter team. As we conclude the holiday season, we want to extend our warmest wishes for a Merry Christmas and a Happy New Year. This time of year is all about spreading love, sharing joy, and creating unforgettable memories with family and friends. We hope that our newsletter can add a little extra sparkle to your celebrations. While there is a lot that goes on behind the scenes to get the newsletter out for everyone to read, we appreciate you taking the time to enjoy our sections! From all of us at Teethyz, have a joyous and wonderful holiday season!
+
+﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒  
+
+**🎁 From: SiimplyBunnwy ◞ ྀི**
+
+◜. Happy holidays and a happy new year I hope this year will be very fun and eventful ❤️
+
+﹒   ──　
+
+**🎁 From: lietogzirls ◞ ྀི**
+
+◜. hey! wishing you a very merry christmas and happy new year!
+
+﹒   ──
+
+**🎁 From: vawerwii ◞ ྀི**
+
+◜. Happy New Year everyone, wishing you all so much luck and happiness in the upcoming year💕
+
+﹒   ──
+
+**🎁 From: JakelDaily ◞ ྀི**
+
+◜. Happy holidays and happy new year to you guys! I hope you all enjoyed a lovely December and spent lovely time with you family and friends. Just a reminder that everyone loves you, you should always keep going and keep fighting for what you truly love. You are all so awesome and let’s make 2025 a great year!!
+
+﹒   ──
+
+**🎁 From: UhMeliaa ◞ ྀི**
+
+◜. Happy Holidays everyone!! I hope we are all enjoying our holidays with our family and friends! May all your holidays be filled with love and laughter! I wish everyone a happy holiday and an amazing New Year! x
+
+﹒   ──
+
+**🎁 From: wiildfiowers ◞ ྀི**
+
+◜. HAPPY HOLIDAYS EVERYONE!! HAPPY NEW YEARS! i’m so proud of how everyone has grown this year and am so glad i got to meet you all, and if we don’t know each other that well, im so excited to get to kept in the new year! ILY ALL
+
+﹒   ──
+
+**🎁 From: whiitemvstqng ◞ ྀི**
+
+◜. Hey Teethyz Community! I hope everyone has a happy holidays, and an amazing new year! I’m so thankful for all of you, as you’re who make up the Teethyz community we all love! I wish everyone a safe, happy, and healthy New Year and hope everyone has an amazing 2025! Happy Holidays!
+
+﹒   ──
+
+**🎁 From: Vinnielittle14 ◞ ྀི**
+
+◜. Happy holidays and a very happy new year! I hope you all got what you wished for and I hope we can have another amazing year in this amazing community 🤍
+
+﹒   ──
+
+**🎁 From: frnkoceean ◞ ྀི**
+
+◜. HAPPY NEW YEAR EVERYONE! WISHING U ALL THE BEST FOR 2025
+
+﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒ ﹒   ──　﹒
+
+Thank you for taking the time to read our special messages from the Teethyz Newsletter team. We hope our warm wishes have added a bit of sparkle to your holiday season. Wishing you a season filled with joy and happiness from all of us at Teethyz!
+
+╰ *Section written by: Iuvbrk & Section Authors Team*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![New Years Resolutons 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![New Years Resolutons 2024](https://github.com/user-attachments/assets/2c3ed4a2-c529-4511-92a9-e1bc173bc3ad)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -289,7 +397,7 @@ Thank you so much for reading the New Year’s Resolutions section of our newsle
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![December Awareness 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![December Awareness 2024](https://github.com/user-attachments/assets/08d22e0f-f232-4fad-9100-beb886c2dcc2)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -313,7 +421,7 @@ Kwanzaa is a week long celebration honoring African Heritage. It is centered aro
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![December OTM/OTW 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![December OTM/OTW 2024](https://github.com/user-attachments/assets/dd74c6c8-3bfe-4d00-8883-d1b67b4cb418)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -445,17 +553,147 @@ Q3: What is your favorite memory during your time in PR?
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![December Promotions 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![December Promotions 2024](https://github.com/user-attachments/assets/bb486b6a-664f-4eec-bd01-c8f6b598dc24)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hello, everyone! This month, Sienna and I had the chance to interview a few MR+ who were promoted recently, along with showcasing a list of all the incredible promotions that happened this month!
+
+**INTERVIEW!**
+
+*⋆❆⋆ Question: How did you feel when you found out about your promotion?*
+
+**˚₊ ❄︎ Sikkiexx Promoted to Dental Board ⋆⁺₊❅.**
+
+- I was SO shocked and confused, I got so many notifications I was so overwhelmed by it all IN A GOOD WAY
+     
+  .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ lvsvnnyy* Promoted to Executive Assistant⋆⁺₊❅.**
+
+- I woke up to see like 100 pings and I was really confused and then I realized!!! I had checked staff announcement and read over the promotion message and I actually could not believe my eyes, I couldn’t fall back asleep because I was so excited.
+
+  .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ stargvrlaviePromoted to Supervisor* ⋆⁺₊❅.**
+
+- okay so i was browsing thru staff announcements to see other people’s promotions then suddenly i got a bunch of pings and i look at the new staff announcement and i got a promotion and i was literally stunned jaw dropped quite literally!!
+
+  .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ lvauraas Promoted to Supervisor ⋆⁺₊❅.**
+
+- Oh my goodness! So I was on call with Sienna and I was just smiling so big! It was so unexpected and I just felt happy to be able to host shifts again!!
+
+  .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ lcstlove Promoted to Assistant Manager ⋆⁺₊❅.**
+
+- I was really happy and surprised, because I didn't expect it at all! I just woke up on a regular morning, and I checked my discord. I got really surprised when I had a lot of pings in Teethyz, and many dms from Marielle and Kelly. I went to teethyz and I saw that I got promoted! I was jumping up and down for like 5 minutes, I was really glad. It was such a nice gift to wake up to!
+
+   .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ pvrffect Promoted to Office Manager ⋆⁺₊❅.**
+
+- not gonna lie i had no idea, at the time i was afk doing english homework then my pings starts blowing up and i knew i didnt win an award so i was soo confused, then i saw the notification in staff announcements AND I SCREAMED!! I WAS VERY SHOCKED BUT SO THANKFUL!!!
+
+    .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+
+**˚₊ ❄︎ Stqrlls Promoted to Corporate Officer⋆⁺₊❅.**
+
+- well at the time i was ranting to my friend abt some random things and then i got a call from leah saying i had been promoted, i was very confused at first since i thought she was joking and then i went onto discord and i saw the announcement. i was quite shocked and i couldn’t believe it!!
+
+    .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+    
+**˚₊ ❄︎ 63chanclas Promoted to Assistant Manager⋆⁺₊❅.**
+
+- For me it just hit Christmas day when I found out I got promoted. I was super happy, it was my first Christmas gift of the day and I couldn't stop smiling! It made me feel super happy and really started off my Christmas day on a high note!
+
+    .𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆.𖥔 ݁ ˖⋆ ˚❆
+  
+**˚₊ ❄︎ Vawerwii Promoted to Office Manager ⋆⁺₊❅.**
+
+I was SUPER SUPER SUPER excited and I was jumping all around my room, I felt so happy!
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+**OVERALL PROMOTIONS!!! ♡**
+
+*˚ʚ New Supervisors*
+
+- ⊹ ࣪  stargvrlavie
+
+- lvnderhqze
+
+- lvauraas
+
+- laufcyy
+
+- Limonaka_Youtube
+
+- S7icy
+
+- svntababy
+
+- cqndycne
+
+- lvc1qa
+
+- cbvopppl
+
+*˚ʚ New Assistant Managers*
+
+- ⊹ ࣪  VivianPlays_123
+
+- lcstlove
+
+- 63chanclas
+
+- nvoaas
+
+*˚ʚ New Office Managers*
+
+- ⊹ ࣪   Glowingxlightzz
+
+- blvcssed
+
+- kkvylas
+
+- pvrffect
+
+- lietogzirls
+
+- thiislqve
+
+- bellqvx
+
+- vawerwii
+
+*˚ʚ New Dental Boards*
+
+- ⊹ ࣪  sikkiexx
+
+- Test_Account3310
+
+*˚ʚ New Executive Assistants*
+
+- ⊹ ࣪  lvsvnnyy
+
+*˚ʚ New Corporate Advisors*
+
+- ⊹ ࣪  mckcnzies
+
+*˚ʚ New Corporate Officers*
+
+- ⊹ ࣪  stqrlls
 
 ╰ *Section written by: s7icy & ribbvnns*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![December Birthdays 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![December Birthdays 2024](https://github.com/user-attachments/assets/6e7e9610-f5d9-4e94-b12c-0b6b9aa5b553)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -467,32 +705,43 @@ In December we have celebrated many MR+ birthday’s, below is how the celebrate
  
 - Hi, I went out with my family to a nice restaurant! But most importantly, I got to spend time at home and relax and play some games instead of work. 😎
 
+![J6V]()
 
  **Birdiexxlak - 7th** 
  
 - For my birthday to like start off early I ended up going to get a new phone which was the newest one the 16 and, 2 days later on my birthday I went out to go shopping for a little bit and, also went to go eat at chili’s which was amazing the food was great then, I went to get a chocolate cake to end the day I did have an amazing birthday overall.
 
+![Birdiexxlak](https://github.com/user-attachments/assets/43e73869-b2ff-4775-bafb-60ab27c5c6d0)
+
  **Iietogzirls - 12th**
 - for my birthday i went to kaspas cafe and had a cool waffle and i might have diabetes now and then i had to go to a few shops bc my parents had to return stuff then went home and then my cool cutie friends hosted me a bday server i was like 🙀🙀🙀🙀🙀 then 🥰🥰🥰 then 😢😢😢😢😢😢 and then went to sleep zz.
+
+![Iietogzirls]()
 
  **vaemmlaqx - 14th**
  
 - The day before my birthday so the 14th, my friends came over to have a party until 1am to celebrate into my birthday. We watched he grinch, gosspied a bit about irl stuff and then also did a gingerbread hous 3v3 (ours was better but we didnt win 😢) then at 12am they gave me their gifts and then for the rest of the night we just had a great night!
 
+![vaemmlaqx](https://github.com/user-attachments/assets/7be3becc-87d2-4d50-be5e-1722e39d66bd)
+
  **sikkiexx - 19th**
  
 - My mom decorated the entire living room and she hung up a sign on the window saying that its my bday, and on the 21st im going to a restaurant with my family to celebrate! 💙
 
+![sikkiexx](https://github.com/user-attachments/assets/faf9dd74-8c7e-4d2d-b56d-fc72333573e4)
+
  **stcrsets - 24th**
  
 - heyhey, i spent the day with my family! we went breakfast then did some shopping, and i had an amazing time. i saw some others and then went out for dinner, it was wonderful, i loved itt. i also got surprised with a cute birthday server with i lovedd!
+
+![stcrsets](https://github.com/user-attachments/assets/6321d812-34b6-402b-a6c3-2e3856b588dd)
 
 ╰ *Section written by: Tradewinds2810 & eviegracea*
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![End of the Year Memoroies 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![2024 Memoroies](https://github.com/user-attachments/assets/78be81dd-19fa-401d-9ebe-2b00f282ad22)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -503,48 +752,46 @@ In December we have celebrated many MR+ birthday’s, below is how the celebrate
 
 - This month, we captured memorable moments during our shifts.  We’ve made them into a collage for you to enjoy. Take a look, you might see yourself in some of these special pictures.
 
- Shift collage picture
+![December Shift Collage](https://github.com/user-attachments/assets/65d5a107-c0e9-449f-83d7-f3b005e853a1)
 
 **Training Photos ♡**
 
 - It’s time for our training photos. As most of you know, after every training session the host is doing a quick picture as a memory. We collected some of these wonderful pictures made by our team and we hope you like them!
 
-Training collage
+![December Training Collage](https://github.com/user-attachments/assets/b6cdce55-b19e-4b83-9aa8-19c06da2b8ea)
 
 **Alliance Photos ♡**
 
 - Every month, our management team loves to not only visit other alliances, but also welcome them into our establishment. This alliance collage is extra special for the month of December because it showcases our new alliance spot for the V2 revamp! We have so much gratitude for our alliances and we love working with them - enjoy this collage.
 
-Alliance collage
+![December Alliance Collage](https://github.com/user-attachments/assets/4ccc3948-b459-4da5-8c82-6b1b3c369dbc)
 
 **Funny Photos ♡**
 
 As we wrap up the year, we are excited to present you, for the final time this year, with this hilarious and creative collage -  put together by our incredibly talented photography team! Have a little laugh with us.
 
-Funny collage
+![December Funny Collage](https://github.com/user-attachments/assets/8f1733b4-8d89-4daf-9cd9-02854f71dff9)
 
 **Christmas Countdown ♡**
 
 As is tradition this month, the photography team is bringing back the countdown to Christmas! We’ve joined forces with our MRs to capture the magic of the season. Here are the 10 pictures counting down the days until Christmas. May everyone have a holiday filled with joy and Christmas spirit!
 
-christmas countdown collage
+![December Christmas 2024 Collage](https://github.com/user-attachments/assets/2c6f6f25-cb12-489f-9183-8e78fc163be1)
 
 **V3 -> V2 ♡**
 
 Over December, we got some hints for our 2024 Christmas update. Little did we know we were heading back in time to version 2. Version 2 was filled with many memories for our community and the photography team is excited to show you all the new memories we have made for the revamped version! Merry Christmas everybody. 
 
-V3 -> V2 collage
+![V3 -> V2 Collage](https://github.com/user-attachments/assets/e0ed7746-a76c-44fa-ad46-5e51cce8b2c5)
 
 ⤹:  That concludes our December memory section! This month was such a fun adventure, and we cannot wait to share more memories with you all next month! ❧
 
 ╰ *Section written by: Photography Team*
 
-Here are some additional sections that are here for only this month's newsletter. Make sure to give them a read and hope you enjoy these new added sections.
-
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![December Month-Long Events Recap 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![December Month-Long Events Recap 2024](https://github.com/user-attachments/assets/f2307ed1-1fd8-4448-a7c3-278b14e42495)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -630,7 +877,7 @@ For our final event, softleys & vaemmlaqx hosted a Christmas Bonfire. This was s
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![Winter Awards Recap 2024](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![Winter Awards Recap 2024](https://github.com/user-attachments/assets/6551bb18-98df-4a88-a149-6fa5fbde733c)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
