@@ -705,7 +705,7 @@ In December we have celebrated many MR+ birthday’s, below is how the celebrate
  
 - Hi, I went out with my family to a nice restaurant! But most importantly, I got to spend time at home and relax and play some games instead of work. 😎
 
-![J6V]()
+![J6V](https://github.com/user-attachments/assets/1bb0f3fd-0f81-41a4-9cbd-9d03c934d4ff)
 
  **Birdiexxlak - 7th** 
  
@@ -716,7 +716,7 @@ In December we have celebrated many MR+ birthday’s, below is how the celebrate
  **Iietogzirls - 12th**
 - for my birthday i went to kaspas cafe and had a cool waffle and i might have diabetes now and then i had to go to a few shops bc my parents had to return stuff then went home and then my cool cutie friends hosted me a bday server i was like 🙀🙀🙀🙀🙀 then 🥰🥰🥰 then 😢😢😢😢😢😢 and then went to sleep zz.
 
-![Iietogzirls]()
+![Iietogzirls](https://github.com/user-attachments/assets/834c8564-18ed-4c05-9de8-03a0931b48da)
 
  **vaemmlaqx - 14th**
  
