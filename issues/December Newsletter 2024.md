@@ -971,6 +971,7 @@ Hey Teethyz! I hope you are having a wonderful time reading this month's newslet
 ・softleys
 
 *Interviewer: fiinelines*
+
 *Interviewee: zebralm*
 
 Question: What was your reaction to getting the award 'Yeti to Quit?
@@ -978,6 +979,7 @@ Question: What was your reaction to getting the award 'Yeti to Quit?
 - Response: "honestly, i had a sense of shock, but at the same time, a sense of comfort knowing that people truly saw how dedicated i've been to teethyz and the effort and time that has been put in for 8 years now!!"
 
 *Interviewer: fiinelines*
+
 *Interviewee: lcvelyjans*
 
 Question: What was your reaction to getting the award 'Winter Warmth?'
@@ -985,6 +987,7 @@ Question: What was your reaction to getting the award 'Winter Warmth?'
 - Response: "I was on voice chat with my friends Spi, Laura and Amelia and we attended awards together it was awesome we all started screaming and it just felt amazinggg to get this award because once I resigned I did kind of feel forgotten about but it’s awesome to see that I’m still making an impact in a way x"
 
 *Interviewer: fiinelines*
+
 *Interviewee: svphiees*
 
 Question: What was your reaction to getting the award 'MR of the Year?'
