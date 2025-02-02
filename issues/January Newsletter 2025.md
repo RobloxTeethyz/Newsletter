@@ -1,4 +1,4 @@
-![December Header](https://github.com/user-attachments/assets/03b1f7d9-93ca-4374-9534-7d48eea8b982)
+![January Header](https://github.com/user-attachments/assets/03b1f7d9-93ca-4374-9534-7d48eea8b982)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -11,7 +11,8 @@ Hello, everyone! Welcome back to our monthly newsletter. It's officially our fir
 
 
 
-![New Year, New Me](https://github.com/user-attachments/assets/2e38b3d2-d781-4f10-aa3f-f0b8c0e927bf)
+![New Year, New Me](https://github.com/user-attachments/assets/8eb6c305-b7ea-49a8-bbc8-c1598cc0d4eb)
+
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -51,8 +52,7 @@ I hope you read through this section and were possibly inspired to create a reso
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![2025 Upcoming Trends](https://github.com/user-attachments/assets/818ab82e-79d8-4ea4-835b-7662a0cfb96b)
-
+![2025 Upcoming Trends](https://github.com/user-attachments/assets/25de36ef-a398-47b0-be49-c46b31ef3d0d)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -133,7 +133,7 @@ Here is a brief recap of the 2024 music revenue.
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![January Wordsearch 2025](https://github.com/user-attachments/assets/ec6f1b35-e9d5-4ed7-8354-c81946d1ea74)
+![January Wordsearch 2025](https://github.com/user-attachments/assets/db8af15f-13aa-4953-bfa7-478ab1e9b3a4)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -148,7 +148,7 @@ Hey everyone! Our next section is a January themed word search! There is 9 words
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-![January Study Tips 2025](https://github.com/user-attachments/assets/ec6f1b35-e9d5-4ed7-8354-c81946d1ea74)
+![January Study Tips 2025](https://github.com/user-attachments/assets/420f25cc-9503-4d3c-b05e-7832bf40a6fa)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
