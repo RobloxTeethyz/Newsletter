@@ -33,7 +33,7 @@ Happy 2025! I hope your year started off with a blast, with many traditions and 
 
 ・Play more Teethyz!
 
-    I hope this helped a little bit! Now, we are going to hear from a select individual  about their New Year's resolutions and what they did!
+I hope this helped a little bit! Now, we are going to hear from a select individual  about their New Year's resolutions and what they did!
 
  **⤹  : crimetats Interview:・**
 
