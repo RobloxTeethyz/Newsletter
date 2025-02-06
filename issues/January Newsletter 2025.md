@@ -342,3 +342,250 @@ Q3: What has your experience been like collaborating with Teethyz as an alliance
 ⠀⠀⠀⠀⠀⠀⠀₊˚ ⋆𐙚₊ ‿︵‿୨୧‿︵‿ ᢉ𐭩₊˚
 
 ╰ *Section written by: S7icy & s9phzie*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![January Promotions 2025](https://github.com/user-attachments/assets/dd3982c3-8485-4658-9f2b-bdb11757c831)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hello, Teethyz! For this section, me (luckuley) and Marielle (S7icy) have gathered an overview on the amazing promotions that occurred this month, alongside a few interviews we conducted with some of the MR+ that got promoted! We hope you enjoy reading!
+
+**‧₊˚ ⋅ ౨ৎ  ‧₊ (stcrsets) Promoted to (Executive Director PR).ᐟ **
+
+- ⤷ i was absolutely speechless, kenzie had scared me so bad i didn't know what to say or do. it was so unexpected! i was so happy though and excited!!
+     
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+   
+  **‧₊˚ ⋅ ౨ৎ  ‧₊ (zupreh) Promoted to (Supervisor).ᐟ **
+  
+- ⤷ My first reaction was when I saw Leah's announcement, my heart honestly skipped a beat. Me and Laura was talking about promotions last night or maybe the night before, and she was saying that I'm 100% getting promo some time soon. Clearly, she can go into the future because I'd love to know how she knew that. Anyway, Leah said "Someone cheated in Red Light, Green Light, and asked everyone if she could call them out." Now, I said yes and uhm, I was brought to Leah. Now, at first I genuinely thought it was a mistake because I had shiftlock on and I was facing another Supervisor. So, I looked at leah and said Uhm... Anyways, she said I cheated and said "As a New Supervisor, you shouldn't be doing that" etc etc. I can't fully remember what she said because I was in shock. But, thats when the tears started. I full on cried. OF JOY!!! and then my laptop nearly crashed from how many people was jumping around me and then the like 2 million pings started coming through. Thank you so much Leah, I'm so happy to be apart of the Lehoco family and the Teethyz community. And, a huge thank you to tradewinds2810 (evie) which was my TSA mentor!! ❤️
+
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+  
+**‧₊˚ ⋅ ౨ৎ  ‧₊ (lukefromthedead) Promoted to (Executive Director STAFFING).ᐟ **
+
+- ⤷ well I saw laura calling me so I picked my phone up, then I saw all of the notifications and had no idea what was happening until I saw lukefromthedead ed and it was very surprising
+
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+  
+**‧₊˚ ⋅ ౨ৎ  ‧₊ (Iluvura) Promoted to (Office Manager).ᐟ**
+
+- ⤷ When I first got promoted, my initial reaction was a mix of shock and also nervousness. I was co-hosting a session when Jayden suddenly came in, mentioning that someone had been disturbing the session and acting unprofessionally. For a moment, I felt scared, thinking I might have done something wrong. Then Jayden "called me out" and teleported me to the host’s spot. That’s when he promoted me to Office Manager. I was shocked, my hands were shaking, and I couldn’t believe what had just happened. I didn’t expect it at all, and honestly, it still feels surreal!
+
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+  
+**‧₊˚ ⋅ ౨ৎ  ‧₊ (jqhcnna) Promoted to (Dental boards).ᐟ**
+
+- ⤷ To be honest, I didn't expect it at all. During my promotion I was on call with Jayden and a few others. My reaction was that I didn't see it coming, I didn't know what to say at all because I was just shocked. I was shaking and so happy. At first, I couldn’t even reply to all the pings and messages because I was extremely shocked. It was really late for me and I wanted to go to sleep but then I saw this message and all these pings, I was awake all night because I didn't expect it at this moment. I was so happy for this opportunity and appreciate it so so much. It means a lot to me and I just want to say that my DMs are always open to anything!
+
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+  
+**‧₊˚ ⋅ ౨ৎ  ‧₊ (lcuraas) Promoted to (Assistant Manager).ᐟ**
+
+- ⤷ so fun fact I was on call with amelia, and my first reaction was staring at it blankly (I was really excited and happy bare in mind) and saying “I just got assistant manager” and Amelia’s reply was “no you didn’t” and she started screaming excitedly at me But I was extremely happy!!
+
+   ⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄⠄･ ⋆ ･ ⠄⠂⋆ ･ ⠄⠂⋆ ･ ⠄
+
+**✶⋆.˚ New Staff Assistants**
+ 
+𐙚⊹₊⋆➜ swanIcke
+
+- carolineinthemorning
+
+- inmyfeelngs
+
+- ameseysz
+
+- plqsticz
+
+- swtthvrt
+
+- Furnface
+
+- zilverbutterfly
+
+- xx_FANNIEandFRANCES3
+
+- bouuqets
+
+- unicorngirlreeha
+
+- Iovqjess
+
+- j6kev
+
+- oceavnz
+
+- svnkviss
+
+- mvcstermiind
+
+- cupcakegamer5670
+
+- Lxvoddd
+
+- stqrllsfan
+
+- NatkaCorn36
+
+- Angelivstrqls
+
+**✶⋆.˚ New Supervisors**
+
+𐙚⊹₊⋆➜ Zupreh
+- fallenllove
+
+- crimetats
+
+- SECRETY_GLOWS
+
+- tacsi52
+
+**✶⋆.˚ New Assistant Managers**
+
+𐙚⊹₊⋆➜ lcuraas
+
+- S7icy
+
+- luckuley
+
+- Limonaka_Youtube
+
+- lvc1qa
+
+**✶⋆.˚ New Office Managers**
+
+𐙚⊹₊⋆➜ Iluvura
+
+- whosymme
+
+**✶⋆.˚ New Dental boards**
+
+𐙚⊹₊⋆➜ jqhcnna
+
+- rvpwtation
+
+- louiseh12
+
+- SiimplyBunnwy
+
+**✶⋆.˚ New Executive Directors**
+
+𐙚⊹₊⋆➜ Stcrsets (PR)
+
+- lukefromthedead (STAFFING)
+
+- vcorria (STAFFING)
+
+╰ *Section written by: S7icy & luckuley*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![January Birthdays 2025](https://github.com/user-attachments/assets/5d268efd-563c-443e-a535-24a839f12951)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+In January, we had the pleasure of celebrating a few birthdays and took the opportunity to interview the birthday stars. 🎉 
+
+**Overall January birthday:**
+
+frnkoceean’s birthday, on the 2nd of January! 
+
+kkennedy’s birthday, on the 3rd of January!
+
+![kkennedys](https://github.com/user-attachments/assets/7782cecb-72ea-4547-9ac8-c908b267ddfb)
+
+🍰 Here is what Kennedy did to celebrate her birthday.
+
+- To celebrate my birthday i went to this outdoor shopping mall and went shopping. I went to a few shops and then got lunch! I finished the day off by getting my birthday freebies and we got dinner that night and some of my friends came. When i got home i got cake!
+
+the_rice’s birthday, on the 7th of January!
+
+![The_rice](https://github.com/user-attachments/assets/c37a168f-0d70-4e0f-940a-2ebd03c8cd79)
+
+Glowingxligtzz’s birthday, on the 15th of January!
+
+![Glowingxlightzz](https://github.com/user-attachments/assets/2b4d7eb4-a409-4427-84e4-06c1d01765ef)
+
+🍰 Here is what Ella did to celebrate her birthday.
+
+- To celebrate my birthday i went to this outdoor shopping mall and went shopping. I went to a few shops and then got lunch! I finished the day off by getting my birthday freebies and we got dinner that night and some of my friends came. When I got home I got cake!
+
+Diste’s birthday, on the 15th of January!
+
+![Diste](https://github.com/user-attachments/assets/b2d0a080-6f9f-49a3-bf57-045129ea61dd)
+
+blvcssed’s birthday, on the 30th of January!!
+
+![blvcssed](https://github.com/user-attachments/assets/c523ea88-a3b9-4713-a464-9a22d91280b2)
+
+🍰 Here is what Alexis did to celebrate her birthday.
+
+- For my birthday I plan on spending time with my family and going out to eat and later on eating cake on Thursday and on the weekend my sister will be coming down so I plan on spending time with her as well as going to the mall with my friends!
+
+╰ *Section written by: SiimplyBunnwy and 64kchanclas*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![January Memories 2025](https://github.com/user-attachments/assets/daaa8085-5a33-4d4a-9a33-6b8f1de0f67f)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+ৎ⁝  Hey, Teethyz community! It’s officially January 2025, and we have a lot of memories to kickstart the year. The photography team has worked very hard to create some collages for you all! We hope you enjoy these photos, and you may even spot yourself in some! Happy Janurary!
+
+**Shift Photos ♡**
+
+- We’ve had some very fun and memorable shifts this month! The Photography Team has put together a collage of some of these amazing shift moments. Have a look! Can you spot yourself or anyone you know? 
+
+![January Shift Collage](https://github.com/user-attachments/assets/77741a86-def3-44fc-9e0d-c56532fe0ff4)
+
+**Training Photos ♡**
+
+- As you may know, at the end of each training session, the Host captures a quick photo to save the memories. This month, the team has done an outstanding job collecting these special moments. Take a look, do you recognize anyone?
+
+![January Training Collage](https://github.com/user-attachments/assets/5e124bc5-7bab-4de7-823c-4fa857af9593)
+
+**Alliance Photos ♡**
+
+- Every day, some of our Management Team members love to visit our alliances and welcome them into our establishment. As always, we’ve put some of these moments into a collage, and we hope you enjoy it! We are so grateful for our alliances and can’t wait for more memories.
+
+![January Alliance Collage](https://github.com/user-attachments/assets/03651254-9664-4edd-9920-a7f55b770ca4)
+
+**Funny Photos ♡**
+
+- We put together a funny collage that’s just a little bit chaotic! We had so much fun at the dentist this month, and we hope it brings a smile to your face. Hope it makes you laugh as much as much as we did! 
+
+![January Funny Collage](https://github.com/user-attachments/assets/79b309fb-8095-4ec0-b049-e5db3670d1ee)
+
+⤹:  That officially concludes our January highlights! As we step into 2025, we're excited about all the incredible memories ahead. We can’t wait to share and experience new memories with you all next month! ❧
+
+╰ *Section written by: Photography Team*
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our **January** Newsletter! See you all next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: RBLXWithEmily
+
+Newsletter Board: PerfectlyAnnie, vaemmlaqx, mckcnzies, witty20007, & stcrsets
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, lvsvnnyy, vcrsity, zupreh, & Limonaka_Youtube
+
+Section Authors: vcorria, steveygamer2, mariesluvqs, lvsvnnyy, nvoaas, frnkoceaan, carqlinees, stargvrlavie, bellqvx, s9phzie, & bvubblys
+
+Photographers: UhMeliaa, ethvrweal, Vinnielittle14, iikqtieee, adsianmendsiam, AlfiundJo, mcllorys, stcrlightts, & Awriaz
+
+Social Assistants: Tradewinds2810, eviegracea, fiinelines, SiimplyBunnwy, cbvopppl, s7icy, luckuley, 64kchanclas, & crimetats
+
+Editors: TailaBzp, Lukefromthedead, kkennedys, OceanAvny, blvcssed, n1ghtfvllz, vawerwii, lvnderhqze, & BffBellebff
