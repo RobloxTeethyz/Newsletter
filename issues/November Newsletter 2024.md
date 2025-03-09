@@ -123,6 +123,7 @@ Hey Teethyz! Have you started your Christmas wishlist? If so, are you absolutely
 ⤹  : *Gifts/Presents*
 
   These are some ideas of what to ask for, on Christmas! These are on the expensive side, so keep that in mind! Although I am giving you suggestions, these are just some of my ideas!
+  
   - Digital Camera
   
   - Digital Watch
