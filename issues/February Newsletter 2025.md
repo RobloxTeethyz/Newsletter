@@ -511,7 +511,7 @@ ethvrweal — 2/27/25, 12:35 AM
 
 We have had some very memorable shifts this month from shifts hosted by the Management team to individual shifting times! The Photography Team put together a collage of some of the best shifting moments! Do you spot yourself anywhere?
 
-![February Shift Collage]((https://github.com/user-attachments/assets/a9a1063f-778f-435f-8ccf-4a32fe6c4a00))
+![February Shift Collage](https://github.com/user-attachments/assets/a9a1063f-778f-435f-8ccf-4a32fe6c4a00)
 
 **•  Training Photos 🤍**
 
